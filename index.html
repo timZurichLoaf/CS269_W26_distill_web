@@ -20,7 +20,7 @@
 
     <script>
       async function loadMarkdown() {
-        const res = await fetch("./news.md", { cache: "no-store" });
+        const res = await fetch("./docs/news.md", { cache: "no-store" });
         if (!res.ok) throw new Error("Failed to load news.md");
         const md = await res.text();
 
