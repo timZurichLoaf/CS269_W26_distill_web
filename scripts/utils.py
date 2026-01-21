@@ -37,11 +37,17 @@ def _feed_asof_time() -> str:
 def google_news_text_only_markdown(limit: int = 10) -> str:
     feed = feedparser.parse(FEED_URL)
     as_of = _feed_asof_time()
+    # lines = [
+    #     f"# Google News (text-only)",
+    #     f"As of {as_of} Los Angeles",
+    #     ""
+    # ]
+
     lines = [
-        f"# Google News (text-only)",
         f"As of {as_of} Los Angeles",
         ""
     ]
+
     for e in feed.entries[:limit]:
         headline, source = split_headline_source(getattr(e, "title", ""))
         parts = [p for p in [headline, source] if p]
