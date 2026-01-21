@@ -3,7 +3,7 @@ name: Update Google News Markdown
 on:
   workflow_dispatch:
   schedule:
-    - cron: "*/5 * * * *"  # every 30 minutes
+    - cron: "*/5 * * * *"  # every 5 minutes
 
 permissions:
   contents: write
