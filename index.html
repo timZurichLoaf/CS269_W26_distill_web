@@ -1,28 +1,37 @@
-<!DOCTYPE html>
+<!doctype html>
 <html lang="en">
-<head>
-  <meta charset="UTF-8" />
-  <title>Distill Web for Human Reading</title>
-  <meta name="viewport" content="width=device-width, initial-scale=1" />
-  <style>
-    body {
-      font-family: system-ui, sans-serif;
-      max-width: 640px;
-      margin: 4rem auto;
-      padding: 0 1rem;
-      line-height: 1.6;
-    }
-    h1 { margin-bottom: 0.25rem; }
-    p { color: #555; }
-    a { color: #0366d6; text-decoration: none; }
-  </style>
-</head>
-<body>
-  <h1>My Project</h1>
-  <p>A minimal GitHub Pages site.</p>
+  <head>
+    <meta charset="utf-8" />
+    <meta name="viewport" content="width=device-width,initial-scale=1" />
+    <title>Top News</title>
+    <style>
+      body { max-width: 820px; margin: 40px auto; padding: 0 16px; font-family: system-ui, -apple-system, Segoe UI, Roboto, Arial, sans-serif; line-height: 1.5; }
+      #content { white-space: normal; }
+      pre { white-space: pre-wrap; }
+      .muted { color: #666; font-size: 0.95rem; }
+    </style>
+    <!-- Markdown renderer (tiny and easy) -->
+    <script src="https://cdn.jsdelivr.net/npm/marked/marked.min.js"></script>
+  </head>
+  <body>
+    <h1>Top 10 News</h1>
+    <p class="muted">Auto-updated by GitHub Actions. (Text-only: title + source.)</p>
+    <div id="content">Loading…</div>
 
-  <p>
-    <a href="https://github.com/timZurichLoafCS269_W26_distill_web">View on GitHub →</a>
-  </p>
-</body>
+    <script>
+      async function loadMarkdown() {
+        const res = await fetch("./news.md", { cache: "no-store" });
+        if (!res.ok) throw new Error("Failed to load news.md");
+        const md = await res.text();
+
+        // Render markdown to HTML
+        document.getElementById("content").innerHTML = marked.parse(md);
+      }
+
+      loadMarkdown().catch(err => {
+        document.getElementById("content").textContent =
+          "Could not load news right now.\n\n" + err.message;
+      });
+    </script>
+  </body>
 </html>
