@@ -1,12 +1,12 @@
-As of 2026-01-22 07:46 Los Angeles
+As of 2026-01-22 08:17 Los Angeles
 
-- Winter Storm Forecast: What to Expect as Snow and Ice Move Across the U.S. This Weekend — The New York Times
+- Trump Drops Tariff Threats Over Greenland After Meeting With NATO Chief — The New York Times
+- Jack Smith warns Americans not to take rule of law 'for granted' — NBC News
 - Trump meets Zelensky as US envoy says ending Russia war down to one issue — BBC
 - ICE detains five-year-old Minnesota boy arriving home, say school officials — The Guardian
-- Autopsy finds Cuban immigrant in ICE custody died of homicide due to asphyxia — NPR
-- Confused by all the notices issued for intense winter weather? Here's your guide — NPR
-- It Will Feel Like 35 Below Zero In Chicago During Weekend Cold Snap — blockclubchicago.org
+- Trump Returns to a Familiar Role: Sowing Trade Chaos — The New York Times
+- European leaders to gather in Brussels to 'coordinate' plans on Trump, Greenland — ABC News
 - Live updates: Vance to visit Minneapolis as Trump’s immigration crackdown expands to Maine — CNN
-- Funding rescissions, re-staffing initiatives and other major takeaways from the final FY26 funding package — Government Executive
-- The ‘nightmare’ budget scenario looming over California — and Gavin Newsom — Politico
-- Few Voters Say Trump’s Second Term Has Made the Country Better, Poll Finds — The New York Times
+- House aims to vote on final funding measures as government shutdown deadline nears — CBS News
+- Top federal prosecutors ‘crushed’ by Epstein files workload — Politico
+- Trump launches Board of Peace in Davos, Zelenskyy announces U.S.-Russia-Ukraine talks — CBS News
