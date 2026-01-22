@@ -1,12 +1,12 @@
-As of 2026-01-22 06:40 Los Angeles
+As of 2026-01-22 07:04 Los Angeles
 
+- Oscar Nominations: ‘Sinners’ and ‘One Battle After Another’ Lead the Way — The New York Times
+- Cuban Detainee in El Paso ICE Facility Died by Homicide, Autopsy Shows — The New York Times
 - Trump meets Zelensky as US envoy says ending Russia war down to one issue — BBC
-- China Wins as Trump Cedes Leadership of the Global Economy — The New York Times
-- ‘Everything hurts’: St. Paul woman describes how ICE forcefully detained her — sahanjournal.com
-- Deportations up, job growth down: Trump’s second term so far – in charts — The Guardian
-- Jack Smith to Testify Before Congress on Trump Investigations — The New York Times
+- Exclusive | The U.S. Is Actively Seeking Regime Change in Cuba by the End of the Year - WSJ — The Wall Street Journal
+- Snowstorm set to hit the Philadelphia region this weekend | Live Updates — 6abc.com
+- Live updates: Vance to visit Minneapolis as Trump’s immigration crackdown expands to Maine — CNN
+- Few Voters Say Trump’s Second Term Has Made the Country Better, Poll Finds — The New York Times
+- Funding rescissions, re-staffing initiatives and other major takeaways from the final FY26 funding package — Government Executive
 - The ‘nightmare’ budget scenario looming over California — and Gavin Newsom — Politico
-- Trump's jibes are wearing thin for many of Europe's leaders — BBC
 - Carney’s global test — Politico
-- Naomi Osaka tones down her walk-on outfit. Turns up the heat at Australian Open — AP News
-- When the ultra rich hire family for their private investment firms, what to pay them can be tricky — CNBC
