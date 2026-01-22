@@ -1,12 +1,12 @@
-As of 2026-01-22 08:17 Los Angeles
+As of 2026-01-22 08:56 Los Angeles
 
 - Trump Drops Tariff Threats Over Greenland After Meeting With NATO Chief — The New York Times
-- Jack Smith warns Americans not to take rule of law 'for granted' — NBC News
-- Trump meets Zelensky as US envoy says ending Russia war down to one issue — BBC
-- ICE detains five-year-old Minnesota boy arriving home, say school officials — The Guardian
-- Trump Returns to a Familiar Role: Sowing Trade Chaos — The New York Times
-- European leaders to gather in Brussels to 'coordinate' plans on Trump, Greenland — ABC News
-- Live updates: Vance to visit Minneapolis as Trump’s immigration crackdown expands to Maine — CNN
-- House aims to vote on final funding measures as government shutdown deadline nears — CBS News
+- Trump holds 'very good talks' with Zelensky as US pushes for Ukraine deal — BBC
+- Chicago weather forecast: Extreme Cold Warning Friday for Cook County, IL as dangerous polar plunge nears — abc7chicago.com
+- Vance's Minnesota trip to show "unwavering support" for ICE — Axios
+- Barron Trump called British police after witnessing alleged assault on female friend, court hears — CNN
+- House moves to finish government funding as Democrats decry Homeland Security bill — AP News
+- ICE detains four children from Minnesota school district, including 5-year-old — The Washington Post
+- ‘High Alert, All the Time’: Minneapolis Sees ICE Around Every Corner — The New York Times
 - Top federal prosecutors ‘crushed’ by Epstein files workload — Politico
-- Trump launches Board of Peace in Davos, Zelenskyy announces U.S.-Russia-Ukraine talks — CBS News
+- Greenland proposal Trump endorsed respects Denmark's sovereignty: sources — Axios
