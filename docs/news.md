@@ -1,12 +1,12 @@
-As of 2026-01-21 15:58 Los Angeles
+As of 2026-01-21 18:30 Los Angeles
 
-- EU suspends approval of US trade deal — BBC
-- House Panel Votes to Hold Clintons in Contempt in Epstein Inquiry — The New York Times
+- Live Updates: Trump Says He's Reached 'Framework' Deal on Greenland and Drops Tariff Threat — The New York Times
+- Uvalde trial: Former school police officer Adrian Gonzales found not guilty on all counts — ABC News
 - Seven more countries agree to join Trump's Board of Peace — BBC
-- Snowstorm set to hit the Philadelphia region the weekend of January 24th and 25th, with the potential for icy mix — 6abc.com
-- When was the last time Charlotte had a significant ice storm? — wcnc.com
-- Doge improperly shared sensitive social security data, DoJ court filing reveals — The Guardian
-- North Carolina teen pleads guilty to murdering 5 people in 2022 killing spree — NBC News
-- Vance to visit Minneapolis on Thursday amid ICE crackdown — Politico
-- Confidence increasing for snow in NYC area this weekend | Live updates — abc7ny.com
-- In Court Record, Official Describes Assault Before ICE Agent Shot Man in Minneapolis — The New York Times
+- Immigration officers assert sweeping power to enter homes without a judge's warrant, memo says — ABC News
+- Federal officials launch ICE operation in Maine and begin arrests — The Washington Post
+- US court allows ICE to arrest and pepper-spray peaceful protesters in Minnesota — The Guardian
+- Austin Thompson Pleads Guilty in North Carolina Shooting That Left 5 Dead — The New York Times
+- Judge blocks government from searching data seized from Post reporter — The Washington Post
+- U.S. House votes to repeal mining protections from BWCAW and surrounding watersheds, bill moves to Senate — kare11.com
+- Lindsey Halligan, Trump's former personal attorney, exits Virginia prosecutor's office — NPR
