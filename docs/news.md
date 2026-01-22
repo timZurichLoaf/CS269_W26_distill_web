@@ -1,12 +1,12 @@
-As of 2026-01-22 00:21 Los Angeles
+As of 2026-01-22 00:57 Los Angeles
 
-- Exclusive | The U.S. Is Actively Seeking Regime Change in Cuba by the End of the Year - WSJ — The Wall Street Journal
-- Trump's jibes are wearing thin for many of Europe's leaders — BBC
+- Greenland proposal Trump endorsed respects Denmark's sovereignty: sources — Axios
 - China Wins as Trump Cedes Leadership of the Global Economy — The New York Times
-- Snowstorm set to hit the Philadelphia region this weekend | Live Updates — 6abc.com
-- FBI reveals how mistaken identity by ICE led to chase, shooting of Venezuelan immigrant in north Minneapolis — Star Tribune
-- Israel kills 3 journalists in Gaza, including CBS News contributor — The Washington Post
-- Austin Thompson Pleads Guilty in North Carolina Shooting That Left 5 Dead — The New York Times
-- Autopsy report classifies ICE detainee’s death as a homicide — The Washington Post
-- Illinois Investigates Claim That Landlord Tipped Off High-Profile ICE Raid — The New York Times
+- FBI reveals how mistaken identity by ICE led to chase, shooting of Venezuelan immigrant in north Minneapolis — startribune.com
+- Private Autopsy Shows Renee Good Was Shot at Least 3 Times, Lawyers Say — The New York Times
+- When was the last time Charlotte had a significant ice storm? — wcnc.com
+- Teen pleads guilty to North Carolina mass shooting that killed 5 — AP News
+- Judge blocks government from searching data seized from Post reporter — The Washington Post
 - Democrats seek to block Homeland Security funding over ICE concerns — The Washington Post
+- Illinois Investigates Claim That Landlord Tipped Off High-Profile ICE Raid — The New York Times
+- Former CIA chief: Actions of the Iranian regime not sustainable, Iran in very difficult situatiion — jpost.com
