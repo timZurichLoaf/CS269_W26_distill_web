@@ -1,12 +1,12 @@
-As of 2026-01-22 14:28 Los Angeles
+As of 2026-01-22 14:52 Los Angeles
 
-- Detention of 5-Year-Old by Federal Agents Incenses Minneapolis — The New York Times
 - A small group of Dems looks to break from their party on ICE funding — Axios
+- Final spending bills move closer to House passage — Politico
 - US optimistic on end to war as Zelensky says Ukraine to talk to US and Russia — BBC
-- Trump administration orders review of federal funding in more than a dozen Democratic states | CNN Politics — CNN
+- 20+ inches of snow could fall in Boston area this weekend. Maps show the latest storm forecast. — CBS News
+- After Trump’s Ultimatum, Greenland Talks Include Sovereign U.S. Bases, No Drilling for Russia — The New York Times
 - Gov. Kemp Declares State of Emergency, Activates State Operations Center Ahead of Winter Storm — gov.georgia.gov
-- Major winter storm eyes up Philadelphia region; first look at snow totals | Live Updates — 6abc.com
 - Sen. Amy Klobuchar files paperwork to run for Minnesota governor — minnesotareformer.com
 - Georgia and Other Southern States Prepare for Storm’s Snow and Bitter Cold — The New York Times
-- Mexican authorities arrest alleged crime figure ‘El Botox’ in killing of lime growers’ leader — AP News
-- Lutnick: Carney’s China deal opens ‘road map’ to change USMCA — Politico
+- ICE memo allows agents to enter homes without judge’s warrant, legal group says — The Washington Post
+- Trump Live Updates: Davos News, Zelensky Speech and Jack Smith Testimony — The New York Times
