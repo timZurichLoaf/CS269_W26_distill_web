@@ -1,12 +1,12 @@
-As of 2026-01-22 09:59 Los Angeles
+As of 2026-01-22 10:50 Los Angeles
 
-- Trump holds 'very good talks' with Zelensky as US pushes for Ukraine deal — BBC
-- Chicago weather forecast: Extreme Cold Warning Friday for Cook County, IL as dangerous polar plunge nears — abc7chicago.com
-- Dangerous cold moving in making for the coldest temps of winter — MPR News
-- Trump and ‘Taco!’ Roil Davos — The New York Times
-- Final spending bills move closer to House passage — Politico
+- Trump launches ‘Board of Peace’ at Davos, testing global order — The Washington Post
+- Protester Nekima Levy Armstrong Who Interrupted Minnesota Church Service Is Arrested, Officials Say — The New York Times
 - ICE detains four children from Minnesota school district, including 5-year-old — The Washington Post
+- Zelensky at Davos: Trump has exposed Europe's weakness — Axios
+- Live updates: Vance to visit Minneapolis as Trump’s immigration crackdown expands to Maine — CNN
+- Chicago weather forecast: Chicago Public Schools cancels classes ahead of Extreme Cold Warning Friday for Cook County, IL — abc7chicago.com
 - ‘High Alert, All the Time’: Minneapolis Sees ICE Around Every Corner — The New York Times
+- ICE memo allows agents to enter homes without judge’s warrant, legal group says — The Washington Post
 - Top federal prosecutors ‘crushed’ by Epstein files workload — Politico
-- Trump’s About-Face on Greenland Thrusts Europe Into Another Dilemma — The Wall Street Journal
-- U.S. Lays Out a Glittering Plan for Gaza, Including Skyscrapers — The New York Times
+- EU leaders worry about handling 'bully' Trump despite Greenland U-turn — Reuters
