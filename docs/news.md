@@ -1,12 +1,12 @@
-As of 2026-01-22 15:21 Los Angeles
+As of 2026-01-22 15:43 Los Angeles
 
+- ICE detains four children from Minnesota school district, including 5-year-old — The Washington Post
+- Winter storm updates: Heavy snow, crippling ice and frigid temperatures forecast to hit more than 2 dozen states this weekend — Yahoo
 - Final spending bills move closer to House passage — Politico
 - A small group of Dems looks to break from their party on ICE funding — Axios
 - US optimistic on end to war as Zelensky says Ukraine to talk to US and Russia — BBC
-- The state attorneys general are as mad as you are — The Verge
 - 20+ inches of snow could fall in Boston area this weekend. Maps show the latest storm forecast. — CBS News
-- Gov. Kemp Declares State of Emergency, Activates State Operations Center Ahead of Winter Storm — gov.georgia.gov
-- Trump administration targets 14 blue states, DC with federal funding review — Politico
+- Sen. Amy Klobuchar files paperwork to run for Minnesota governor — minnesotareformer.com
 - Georgia and Other Southern States Prepare for Storm’s Snow and Bitter Cold — The New York Times
-- Live updates: Vance to visit Minneapolis as Trump’s immigration crackdown expands to Maine — CNN
-- ICE memo allows agents to enter homes without judge’s warrant, legal group says — The Washington Post
+- Trump Live Updates: Davos News, Zelensky Speech and Jack Smith Testimony — The New York Times
+- Lonely Trump Humiliated as Major Allies Refuse to Be Bullied — The Daily Beast
