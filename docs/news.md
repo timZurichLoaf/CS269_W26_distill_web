@@ -1,12 +1,12 @@
-As of 2026-01-22 21:51 Los Angeles
+As of 2026-01-22 22:30 Los Angeles
 
 - Maps show where winter storm threatens to bring heavy snow, ice, brutal cold this weekend — CBS News
+- ICE memo allows agents to enter homes without judicial warrant: Whistleblower complaint — ABC News
+- Immigration Agents Detain 5-Year-Old Boy in Minnesota, Prompting Outrage — The New York Times
 - Weather update: Friday classes canceled — news.wisc.edu
 - The Texas snow and ice forecast is changing. Here’s an update. — expressnews.com
-- House Republicans barely defeat Venezuela war powers resolution to check Trump’s military actions — AP News
 - US optimistic on end to war as Zelensky says Ukraine to talk to US and Russia — BBC
-- Trump budget office orders review of funds to Democratic-controlled states — The Washington Post
-- Live updates: Vance blames Minnesota officials for ICE presence but concedes misconduct should be investigated — CNN
-- New ICE policy allows officers to enter homes without a judge’s warrant. Here’s what experts say — CNN
-- At least 5 to 10 inches of snow likely in D.C. area this weekend, plus ice — The Washington Post
+- The deal to secure TikTok’s future in the US has finally closed — CNN
+- Man Accused in $100 Million Jewel Heist Is Deported, Thwarting Trial — The New York Times
 - EU wants U.S. trade deal back on track, but warns it would defend itself if threatened again — Reuters
+- ‘No one can trust him’: Trump’s torched allies confront the world without America — politico.eu
