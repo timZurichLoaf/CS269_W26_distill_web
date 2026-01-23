@@ -1,12 +1,12 @@
-As of 2026-01-22 20:50 Los Angeles
+As of 2026-01-22 21:23 Los Angeles
 
 - Maps show where winter storm threatens to bring heavy snow, ice, brutal cold this weekend — CBS News
-- Vance Says There Is No Need for Troops in Minneapolis ‘Right Now’ — The New York Times
+- Live updates: Vance blames Minnesota officials for ICE presence but concedes misconduct should be investigated — CNN
 - Weather update: Friday classes canceled — news.wisc.edu
+- 20+ inches of snow could fall in Boston area this weekend. Maps show the latest storm forecast. — CBS News
 - Trump budget office orders review of funds to Democratic-controlled states — The Washington Post
-- Mark Carney Says Firmly That ‘Canada Doesn’t Live Because of the United States’ — The New York Times
-- Map shows how much snow Pittsburgh could get this weekend from winter storm — CBS News
-- Federal jury rejects Bovino murder plot after attorney calls on it to 'stop the overreaching government' — chicago.suntimes.com
+- LA Metro approves massive $25B underground rail line to bypass 405 Freeway — foxla.com
 - Contractor indicted over alleged leaks to Washington Post — Politico
 - New ICE policy allows officers to enter homes without a judge’s warrant. Here’s what experts say — CNN
 - U.S. Formally Withdraws From World Health Organization — The New York Times
+- At least 5 to 10 inches of snow likely in D.C. area this weekend, plus ice — The Washington Post
