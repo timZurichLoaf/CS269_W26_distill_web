@@ -1,12 +1,12 @@
-As of 2026-01-22 15:43 Los Angeles
+As of 2026-01-22 18:21 Los Angeles
 
-- ICE detains four children from Minnesota school district, including 5-year-old — The Washington Post
-- Winter storm updates: Heavy snow, crippling ice and frigid temperatures forecast to hit more than 2 dozen states this weekend — Yahoo
-- Final spending bills move closer to House passage — Politico
-- A small group of Dems looks to break from their party on ICE funding — Axios
+- Maps show where winter storm threatens to bring heavy snow, ice, brutal cold this weekend — CBS News
+- Vance Says There Is No Need for Troops in Minneapolis ‘Right Now’ — The New York Times
+- Chicago Jury Acquits Immigrant Accused in Bovino Murder-for-Hire Trial — The New York Times
+- Businesses close, Minnesotans to stay home Friday in protest of ICE — Star Tribune
 - US optimistic on end to war as Zelensky says Ukraine to talk to US and Russia — BBC
-- 20+ inches of snow could fall in Boston area this weekend. Maps show the latest storm forecast. — CBS News
-- Sen. Amy Klobuchar files paperwork to run for Minnesota governor — minnesotareformer.com
-- Georgia and Other Southern States Prepare for Storm’s Snow and Bitter Cold — The New York Times
-- Trump Live Updates: Davos News, Zelensky Speech and Jack Smith Testimony — The New York Times
-- Lonely Trump Humiliated as Major Allies Refuse to Be Bullied — The Daily Beast
+- House rejects resolution that would bar Trump from sending troops to Venezuela — The Guardian
+- New ICE policy allows officers to enter homes without a judge’s warrant. Here’s what experts say — CNN
+- US withdraws from the World Health Organization — Reuters
+- Gov. Lee Issues State of Emergency Ahead of Major Winter Storm — tn.gov
+- After ‘good’ Trump meeting, Zelensky pushes Europe hard to do more — The Washington Post
