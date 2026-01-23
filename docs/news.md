@@ -1,12 +1,12 @@
-As of 2026-01-23 09:57 Los Angeles
+As of 2026-01-23 10:49 Los Angeles
 
-- Monster storm about to hit millions with catastrophic ice and heavy snow — CNN
-- Ryan Wedding, ex-Olympic snowboarder accused of being a drug kingpin, is arrested — NBC News
-- Davos is back — but the world it once championed is gone — politico.eu
+- Live updates: Minnesota ‘economic blackout’ planned in protest of ICE as immigration crackdown fuels tensions — CNN
 - Trump covets mineral-rich Greenland, but what natural resources does it actually have? — BBC
-- Businesses in Minneapolis are planning to close Friday to protest ICE — NBC News
-- Jasmine Crockett and James Talarico Face Off in a Texas Senate Primary Campaign — The New York Times
+- 5 arrested in connection with shooting of Indiana judge and his wife — NBC News
+- Chicago weather today: School closings amid frigid wind chill temps, Extreme Cold Warning; winter storm this weekend to bring snow — abc7chicago.com
 - Hoyer endorses former campaign manager in race to succeed him in Congress — The Washington Post
-- Vietnam’s Leader Consolidates Power, Pledging ‘New Era of Prosperity’ — The New York Times
-- 'Nuremberg moment': UN Human Rights Council adopts motion for probe into Iran protest violence — jpost.com
+- Vance strikes a softer tone amid growing unease over ICE tactics — Politico
+- Davos is back — but the world it once championed is gone — politico.eu
+- Spanish track was fractured before high-speed train disaster, report finds — BBC
+- On Greenland, Europe stood up, Trump blinked, and the E.U. learned a lesson — The Washington Post
 - EU Commission indicates it's ready to implement Mercosur trade deal despite parliament vote to delay — AP News
