@@ -1,12 +1,12 @@
-As of 2026-01-23 01:58 Los Angeles
+As of 2026-01-23 02:38 Los Angeles
 
-- Weather update: Friday classes canceled — news.wisc.edu
+- Trump's envoys meet Putin for four hours on Ukraine — Axios
+- After Trump’s Ultimatum, Greenland Talks Include Sovereign U.S. Bases, No Drilling for Russia — The New York Times
+- House passes DHS funding bill despite Democratic opposition over ICE — The Washington Post
+- ‘We have to stand together’: Minnesota economic blackout organizers push to take demonstrations nationwide — The Guardian
 - 20+ inches of snow could fall in Boston area this weekend. Maps show the latest storm forecast. — CBS News
-- New ICE warrant policy disregards a fundamental American right, experts say. Here’s what we know — CNN
-- Man Accused in $100 Million Jewel Heist Is Deported, Thwarting Trial — The New York Times
+- 'Show the warrants.' Maine's governor demands data on arrests as fear spreads over federal immigration operations — PBS
 - Contractor indicted over alleged leaks to Washington Post — Politico
 - ‘Brain the size of a walnut’: Bessent goes off on Newsom — Politico
-- Japan’s Takaichi dissolves parliament after only 3 months in office, setting up snap election — AP News
-- EU leaders seek to preserve ties with US — DW.com
-- Mark Carney Says Firmly That ‘Canada Doesn’t Live Because of the United States’ — The New York Times
-- Liz Hurley accuses Daily Mail publisher of bugging windowsill — The Guardian
+- Column | Trump dominated Davos. But Canada’s Carney was the star. — The Washington Post
+- New ICE policy allows officers to enter homes without a judge’s warrant. Here’s what experts say — CNN
