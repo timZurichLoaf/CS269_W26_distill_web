@@ -1,12 +1,12 @@
-As of 2026-01-23 15:53 Los Angeles
+As of 2026-01-23 17:53 Los Angeles
 
-- Hundreds of Minnesota Businesses on Strike in Protest Against ICE — The New York Times
-- Vance announces aid restrictions for groups that promote diversity, transgender policies abroad — Politico
-- Live updates: House rejects Democratic-backed Venezuela war powers resolution — AP News
-- 5 arrested in connection with shooting of Indiana judge and his wife — NBC News
-- Trump’s Investigator Breaks His Silence — The New York Times
-- Trump administration weighs naval blockade to halt Cuban oil imports — Politico
+- FBI Agent Resigns After Trying to Investigate ICE Officer in Renee Good Shooting — The New York Times
+- Storm timeline shows when snow is forecast to start and end in Massachusetts this weekend — CBS News
+- How to prepare for "rare," "dangerous" ice expected from this weekend's storm — Axios
+- Unflappable Jack Smith turns tables on Jim Jordan in hearing, again declaring Trump a criminal — cleveland.com
+- DHS pauses cuts to FEMA as massive winter storm barrels in — The Washington Post
 - Metro Atlanta under ice storm warning as region braces for winter weather — wabe.org
+- Vance addresses criticism that Trump admin has not done enough to move anti-abortion rights agenda forward — ABC News
 - Kushner’s vision for rebuilding Gaza faces major obstacles — AP News
-- Inside USA House: The converted church that left a MAGA mark on Davos — The Washington Post
 - Iran protests: Eyewitness tells of people getting shot — BBC
+- Bari Weiss’s CBS News Won’t Even Condemn Israel for Killing a CBS Contributor — Zeteo | Substack
