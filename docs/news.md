@@ -1,7 +1,7 @@
-As of 2026-01-23 23:47 Los Angeles
+As of 2026-01-24 00:00 Los Angeles
 
 - Winter storm begins: Millions face catastrophic ice and heavy snow — CNN
-- Thousands march in Minnesota and hundreds of businesses close to protest ICE — The Washington Post
+- Hundreds of Minnesota Businesses on Strike in Protest Against ICE — The New York Times
 - China no longer Pentagon's top security priority — BBC
 - Airlines Cancel Hundreds of Flights In Anticipation of Powerful Winter Storm — The New York Times
 - ICE has been entering homes without judicial warrants since last summer, sources say — NBC News
