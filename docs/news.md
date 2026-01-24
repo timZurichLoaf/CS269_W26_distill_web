@@ -1,12 +1,12 @@
-As of 2026-01-23 19:39 Los Angeles
+As of 2026-01-23 20:22 Los Angeles
 
-- Winter storm begins: Millions face catastrophic ice and heavy snow — CNN
+- Hundreds of Minnesota Businesses on Strike in Protest Against ICE — The New York Times
 - U.K., including Prince Harry, voices outrage at Trump’s Afghanistan remarks — The Washington Post
+- Private guard called 911 in ICE detainee homicide, saying man 'kept going' after suicide attempt — AP News
 - Airlines Cancel Hundreds of Flights In Anticipation of Powerful Winter Storm — The New York Times
 - Storm timeline shows when snow is forecast to start and end in Massachusetts this weekend — CBS News
-- FBI Agent Resigns After Trying to Investigate ICE Officer in Renee Good Shooting — The New York Times
-- Unflappable Jack Smith turns tables on Jim Jordan in hearing, again declaring Trump a criminal — cleveland.com
-- DHS pauses cuts to FEMA as massive winter storm barrels in — The Washington Post
-- Trump administration weighs naval blockade to halt Cuban oil imports — Politico
+- ICE Agent Charged With Misdemeanor Following Scuffle With an Activist — The New York Times
 - Severe cold and dangerous winter storm bear down on D.C. area — The Washington Post
-- Vance addresses criticism that Trump admin has not done enough to move anti-abortion rights agenda forward — ABC News
+- Kushner’s vision for rebuilding Gaza faces major obstacles — AP News
+- Inside USA House: The converted church that left a MAGA mark on Davos — The Washington Post
+- Iran protests: Eyewitness tells of people getting shot — BBC
