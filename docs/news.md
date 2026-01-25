@@ -1,11 +1,11 @@
-As of 2026-01-24 21:16 Los Angeles
+As of 2026-01-24 21:46 Los Angeles
 
+- How much snow is Boston getting this weekend? Here's a closer look at the Massachusetts forecast. — CBS News
 - Large protests spread across US after Alex Pretti fatally shot by federal agents — The Guardian
 - Gun Activists Bridle at Suggestion That Pistol Justified Killing — The New York Times
-- How much snow is Boston getting this weekend? Here's a closer look at the Massachusetts forecast. — CBS News
 - StormTracker8: Snow and sleet tonight, freezing rain all day Sunday — wric.com
-- How Soviet urban planning is helping Russia freeze Ukraine — BBC
-- Level 1 Driving Warning Statewide at Midnight — news.delaware.gov
+- Trump praises British troops after drawing outrage at comments downplaying NATO’s role in Afghanistan — CNN
+- Democrats in Texas Senate race call for ICE overhaul, hours after Minnesota shooting — NBC News
 - Ukrainian officials call talks with U.S. and Russia "positive" and "constructive" — Axios
 - Democrats Vow Not to Fund ICE After Shooting, Imperiling Spending Deal — The New York Times
 - Governor Hochul Updates New Yorkers on State Preparations Ahead of Massive Winter Storm — governor.ny.gov
