@@ -1,12 +1,12 @@
-As of 2026-01-25 14:20 Los Angeles
+As of 2026-01-25 14:43 Los Angeles
 
-- Bondi seeks Minnesota voter rolls, welfare data to "help bring back law and order" in wake of shootings — CBS News
+- Judge grants restraining order against DHS after Border Patrol kills Alex Pretti in Minneapolis — CBS News
+- In Minneapolis, Trump Administration’s ICE Crackdown Shows the U.S. Unraveling — The New York Times
 - Exclusive | China’s Top General Accused of Giving Nuclear Secrets to U.S. — The Wall Street Journal
-- 'Fundamentally wrong:' Gun groups, Republicans condemn Noem, Patel statements — Axios
 - Ice storm arrives in Georgia bringing thousands of power outages in metro Atlanta — wabe.org
-- Rep. Maxwell Alejandro Frost Is Assaulted at Sundance Film Festival — The New York Times
+- Carney says Canada has no plans to pursue free trade agreement with China as Trump threatens tariffs — AP News
 - US security agreement for Ukraine is ‘100% ready’ to be signed, Zelenskyy says — AP News
-- Minneapolis live: Protesters gather in Minneapolis as governor calls on Trump to remove agents after shooting — BBC
 - Philadelphia snow updates: Latest forecast, storm timing, travel impact and more — whyy.org
-- Transcript: Minneapolis Police Chief Brian O'Hara on "Face the Nation with Margaret Brennan," Jan. 25, 2026 — CBS News
-- Eleanor Holmes Norton Files to End Re-election Campaign — The New York Times
+- UPDATED: Preliminary snow and sleet totals from around Northern Virginia — insidenova.com
+- A man is under arrest for assaulting U.S. Rep. Maxwell Frost at the Sundance Film Festival — AP News
+- Trump, in retreat, praises U.K. troops after royal family expresses hurt — The Washington Post
