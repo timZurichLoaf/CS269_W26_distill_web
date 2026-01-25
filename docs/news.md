@@ -1,12 +1,12 @@
-As of 2026-01-24 19:20 Los Angeles
+As of 2026-01-24 20:35 Los Angeles
 
-- Democrats threaten government shutdown over ICE funding — Axios
-- How much snow are Boston and Massachusetts getting this weekend? — CBS News
-- Appeals court rejects DOJ’s emergency bid to arrest Don Lemon, church demonstrators — Politico
-- 'It's time to start doing something.' Despite risks of violence, Minnesotans step up to take on ICE — Reuters
-- Trump praises British troops after drawing outrage at comments downplaying NATO’s role in Afghanistan — CNN
+- Appeals court declines to order lower court to sign arrest warrants against Don Lemon, others in church protest — CBS News
+- How much snow is Boston getting this weekend? Here's a closer look at the Massachusetts forecast. — CBS News
+- Gun Activists Bridle at Suggestion That Pistol Justified Killing — The New York Times
 - How Soviet urban planning is helping Russia freeze Ukraine — BBC
+- DC area braces for winter storm that could blanket the region with 10 inches of snow, plus freezing rain — wtop.com
+- Level 1 Driving Warning Statewide at Midnight — news.delaware.gov
+- Takeaways from the first Texas Senate Democratic primary debate — CNN
 - Ukrainian officials call talks with U.S. and Russia "positive" and "constructive" — Axios
-- Live updates: As sun sets across North Texas, icy roads, dangerous cold, sleet to ramp up — dallasnews.com
+- LIVE: Houston and southeast Texas under ice and winter storm warnings, ABC13 Weather Alert activated — abc13.com
 - Republicans are worried about Trump’s deportation campaign, and our new poll shows why — Politico
-- Updated hour-by-hour look at winter ice storm in Virginia — wtvr.com
