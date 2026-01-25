@@ -1,12 +1,12 @@
-As of 2026-01-25 12:34 Los Angeles
+As of 2026-01-25 12:52 Los Angeles
 
 - Bondi seeks Minnesota voter rolls, welfare data to "help bring back law and order" in wake of shootings — CBS News
+- Carney says Canada has no plans to pursue free trade agreement with China as Trump threatens tariffs — AP News
+- 'Fundamentally wrong:' Gun groups, Republicans condemn Noem, Patel statements — Axios
+- Democratic congressman punched in racist attack at Sundance film festival — The Guardian
 - Ice storm arrives in Georgia bringing thousands of power outages in metro Atlanta — wabe.org
-- Appeals court rejects DOJ’s emergency bid to arrest Don Lemon, church demonstrators — Politico
 - 2026 Winter Storm — FEMA.gov
-- Jack Smith lays it out: Trump has shattered the rule of law — Salon.com
-- Trump, in retreat, praises U.K. troops after royal family expresses hurt — The Washington Post
+- Philadelphia snow updates: Latest forecast, storm timing, travel impact and more — whyy.org
 - Eleanor Holmes Norton won’t seek reelection as DC delegate — Politico
-- US Declares Power Emergency in Texas as Storm Boosts Demand — Bloomberg
-- As we return to a pre-WW2 order, the middle powers face a challenge — BBC
-- Davey says war bonds would help to speed up UK defence spending — BBC
+- Preliminary snow totals from around Northern Virginia — insidenova.com
+- Trump, in retreat, praises U.K. troops after royal family expresses hurt — The Washington Post
