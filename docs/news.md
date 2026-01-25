@@ -1,12 +1,12 @@
-As of 2026-01-24 20:35 Los Angeles
+As of 2026-01-24 21:16 Los Angeles
 
-- Appeals court declines to order lower court to sign arrest warrants against Don Lemon, others in church protest — CBS News
-- How much snow is Boston getting this weekend? Here's a closer look at the Massachusetts forecast. — CBS News
+- Large protests spread across US after Alex Pretti fatally shot by federal agents — The Guardian
 - Gun Activists Bridle at Suggestion That Pistol Justified Killing — The New York Times
+- How much snow is Boston getting this weekend? Here's a closer look at the Massachusetts forecast. — CBS News
+- StormTracker8: Snow and sleet tonight, freezing rain all day Sunday — wric.com
 - How Soviet urban planning is helping Russia freeze Ukraine — BBC
-- DC area braces for winter storm that could blanket the region with 10 inches of snow, plus freezing rain — wtop.com
 - Level 1 Driving Warning Statewide at Midnight — news.delaware.gov
-- Takeaways from the first Texas Senate Democratic primary debate — CNN
 - Ukrainian officials call talks with U.S. and Russia "positive" and "constructive" — Axios
-- LIVE: Houston and southeast Texas under ice and winter storm warnings, ABC13 Weather Alert activated — abc13.com
+- Democrats Vow Not to Fund ICE After Shooting, Imperiling Spending Deal — The New York Times
+- Governor Hochul Updates New Yorkers on State Preparations Ahead of Massive Winter Storm — governor.ny.gov
 - Republicans are worried about Trump’s deportation campaign, and our new poll shows why — Politico
