@@ -1,12 +1,12 @@
-As of 2026-01-25 09:33 Los Angeles
+As of 2026-01-25 09:49 Los Angeles
 
-- Minneapolis live: Minnesota governor tells Trump to pull agents out of state as family of killed man ask for 'truth' — BBC
-- Philadelphia snow updates: Latest forecast, storm timing, travel impact and more — whyy.org
+- Snow emergencies issued in multiple Northeast Ohio counties amid winter storm: See if your county is included and what each level actually means — wkyc.com
 - Jack Smith lays it out: Trump has shattered the rule of law — Salon.com
-- Trump, in retreat, praises U.K. troops after royal family expresses hurt — The Washington Post
+- UK politicians welcome Trump’s retreat over British troops’ role in Afghanistan — The Guardian
 - StormTracker8: Snow and sleet tonight, freezing rain all day Sunday — wric.com
 - Thousands of new Americans opt for 'ultimate act of inclusion' despite obstacles — NPR
+- Forecast shift: Even more ice is now expected in South Texas — expressnews.com
 - Level 2 Driving Restriction in effect — wdel.com
-- Ukrainian officials call talks with U.S. and Russia "positive" and "constructive" — Axios
+- Eleanor Holmes Norton won’t seek reelection as DC delegate — Politico
 - N.J. weather: Latest snow totals predicted by 11 forecasters for the looming winter storm — nj.com
 - Davey says war bonds would help to speed up UK defence spending — BBC
