@@ -1,12 +1,12 @@
-As of 2026-01-25 09:49 Los Angeles
+As of 2026-01-25 10:20 Los Angeles
 
-- Snow emergencies issued in multiple Northeast Ohio counties amid winter storm: See if your county is included and what each level actually means — wkyc.com
 - Jack Smith lays it out: Trump has shattered the rule of law — Salon.com
-- UK politicians welcome Trump’s retreat over British troops’ role in Afghanistan — The Guardian
+- Trump, in retreat, praises U.K. troops after royal family expresses hurt — The Washington Post
+- Over 200,000 without power Sunday morning after freeze, according to reports — fox17.com
+- Xi’s Purge of China’s Military Brings Its Top General Down — The New York Times
 - StormTracker8: Snow and sleet tonight, freezing rain all day Sunday — wric.com
-- Thousands of new Americans opt for 'ultimate act of inclusion' despite obstacles — NPR
-- Forecast shift: Even more ice is now expected in South Texas — expressnews.com
-- Level 2 Driving Restriction in effect — wdel.com
+- When will freezing rain hit San Antonio? Here’s the timeline. — expressnews.com
 - Eleanor Holmes Norton won’t seek reelection as DC delegate — Politico
 - N.J. weather: Latest snow totals predicted by 11 forecasters for the looming winter storm — nj.com
+- As we return to a pre-WW2 order, the middle powers face a challenge — BBC
 - Davey says war bonds would help to speed up UK defence spending — BBC
