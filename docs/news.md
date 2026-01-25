@@ -1,12 +1,12 @@
-As of 2026-01-24 23:50 Los Angeles
+As of 2026-01-25 00:22 Los Angeles
 
-- Democrats Vow Not to Fund ICE After Shooting, Imperiling Spending Deal — The New York Times
 - How much snow is Boston getting this weekend? Here's a closer look at the Massachusetts forecast. — CBS News
 - Winter storm timeline for New York, New Jersey shows when heaviest snow will hit this weekend — CBS News
-- Gun rights groups fiercely criticize top L.A. federal prosecutor for response to Minneapolis shooting — latimes.com
-- StormTracker8: Snow and sleet tonight, freezing rain all day Sunday — wric.com
+- American rock climber Alex Honnold reaches top of Taipei 101 skyscraper without ropes — AP News
+- Large protests spread across US after Alex Pretti fatally shot by federal agents — The Guardian
 - Stream live on WCNC+ | Ice storm coverage in Charlotte, across Carolinas — wcnc.com
+- Democrats in Texas Senate race call for ICE overhaul, hours after Minnesota shooting — NBC News
 - Heavy snow and ice are coming to Philly, and may stick around for a week, or more — inquirer.com
-- Trump backed down from NATO tariffs over Greenland but may cross a 'red line' on U.S. military bases there — Fortune
-- At Least 9 Dead, 81 Others Missing After Landslide Triggered by Heavy Rain Buries Houses in Village — Yahoo News UK
-- How a fiery Scott Bessent calmed market nerves over Greenland — CNN
+- Immigrant families protest inside Texas facility housing 5-year-old boy, father detained in Minnesota — texastribune.org
+- Ukrainian officials call talks with U.S. and Russia "positive" and "constructive" — Axios
+- N.J. weather: Latest snow totals predicted by 11 forecasters for the looming winter storm — nj.com
