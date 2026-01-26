@@ -1,12 +1,12 @@
-As of 2026-01-26 12:36 Los Angeles
+As of 2026-01-26 13:31 Los Angeles
 
-- Suozzi: ‘I failed’ when voting to pass DHS funding bill — Politico
-- Israel says it has retrieved remains of final Gaza hostage Ran Gvili — BBC
-- All eyes are on Rubio as he navigates the world in 2 critical roles — NPR
+- Israel Recovers Body of Ran Gvili From Gaza, Closing a Chapter — The New York Times
 - Why Is the Trump Administration Demanding Minnesota’s Voter Rolls? — The New York Times
 - Driving Restrictions for Delaware Downgraded Effective 10am — news.delaware.gov
+- 31,000 Kaiser Permanente health care workers in California, Hawaii go on strike — abc7.com
+- A Crisis of Confidence for ICE and Border Patrol as Clashes Escalate — The New York Times
 - When will the Dallas roads melt? Everybody wants to know ... Here's what we can tell you, for now — wfaa.com
-- Ginther says 'Stay Home' as city workers continue emergency snow removal — abc6onyourside.com
+- Trump, Bondi statements fuel legal case against Minnesota surge — Politico
+- China’s top general under investigation for alleged violations amid corruption crackdown — The Guardian
+- Gunmen storm Mexico football pitch and kill at least 11 people — BBC
 - South Sudan army threat to 'spare no-one' condemned — BBC
-- France debates under-15s social media ban endorsed by Macron — BBC
-- Bessent: Greenland deal is ‘much more fulsome’ for the US — ABC News
