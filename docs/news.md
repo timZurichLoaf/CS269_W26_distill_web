@@ -1,12 +1,12 @@
-As of 2026-01-25 21:05 Los Angeles
+As of 2026-01-25 21:48 Los Angeles
 
 - Opinion | The unjust killing of Alex Pretti marks a turning point in Trump’s second term — The Washington Post
-- Private jet carrying 8 people crashes at Bangor, Maine, airport, FAA says — CNN
-- Winter storm live updates for NYC and Tri-State Area as snow, sleet and dangerous cold take over — CBS News
+- A major winter storm has hit the D.C. region. Here’s what to know — wamu.org
 - CNBC Daily Open: Canada is drawing Trump's ire — and faces a 100% tariff — CNBC
 - Winter storm wreaks havoc in north Miss. — mississippitoday.org
 - Georgia ice storm causing thousands of power outages in metro Atlanta — wabe.org
-- Democrats vow to oppose homeland security funds after Minnesota shooting as shutdown risk grows — AP News
+- Philly’s biggest snow in five years has an icy finish, and it isn’t going anywhere soon — inquirer.com
+- Private jet carrying 8 people crashes at Bangor, Maine, airport, FAA says — CNN
 - Columbia Selects University of Wisconsin Chancellor as Its President — The New York Times
-- Philadelphia snow updates: Latest forecast, storm timing, travel impact and more — whyy.org
-- Russian strike on Ukraine's Kyiv leaves 1,330 buildings still without heat, mayor says — Reuters
+- Japan returns pandas to China amid strained ties — BBC
+- Bessent: Greenland deal is ‘much more fulsome’ for the US — ABC News
