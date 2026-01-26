@@ -1,12 +1,12 @@
-As of 2026-01-26 09:00 Los Angeles
+As of 2026-01-26 10:49 Los Angeles
 
-- Israel recovers body of last hostage in Gaza — CNN
+- Town-by-town totals: How much snow has fallen in Mass. so far? — boston25news.com
+- Minnesota Republican drops out of governor's race, citing GOP's handling of immigration enforcement — NBC News
+- All eyes are on Rubio as he navigates the world in 2 critical roles — NPR
+- Democrats grow louder on calls for Kristi Noem to resign or face impeachment — NBC News
+- Driving Restrictions for Delaware Downgraded Effective 10am — news.delaware.gov
 - A Crisis of Confidence for ICE and Border Patrol as Clashes Escalate — The New York Times
-- Pro-ICE churches should be shamed — Salon.com
-- Dangerous winter storm arrives in NYC, Tri-State Area with heavy snow, sleet — CBS News
-- Storm dies down in Upstate NY, but how long will bitter cold last? — syracuse.com
-- Chris Madel, a Republican running for Minnesota governor, ends his bid and criticizes ICE — CNN
+- Minneapolis Live Updates: Trump Sends Border Czar to Oversee ICE Operations — The New York Times
+- Private jet crashes while taking off during storm in Maine — ABC News
 - How $16B in earmarks evaded conservative ire — and helped clinch a funding deal — Politico
-- CNBC Daily Open: As Trump destabilizes foreign relationships, Europe forges new ties — CNBC
-- N.J. weather: Snowfall totals hit 17 inches. See town-by-town snow reports for weekend storm. — nj.com
-- Russian strike on Ukraine's Kyiv leaves 1,330 buildings still without heat, mayor says — Reuters
+- Judges, inundated with immigration cases, don’t mince words on ICE tactics — Politico
