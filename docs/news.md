@@ -1,12 +1,12 @@
-As of 2026-01-27 03:30 Los Angeles
+As of 2026-01-27 05:07 Los Angeles
 
+- Minneapolis Live Updates: Trump Pulls Bovino From ICE Operations in Minnesota — The New York Times
+- Federal agents use teargas on protesters outside ICE agents’ alleged Minneapolis hotel — The Guardian
+- Trump's immigration approval drops to record low, Reuters/Ipsos poll finds — Reuters
+- White House Distances Trump From Initial Response to Minnesota Killing — The New York Times
 - Trump raises US tariffs on South Korea imports to 25% — BBC
-- Winter Storm Debilitates the South, Encasing Cities in Ice and Snow — The New York Times
-- SCHOOL CLOSINGS: List of Georgia districts canceling or going virtual Tuesday — wsbtv.com
-- UK's Starmer heads to China to repair ties as he navigates tensions with US — Reuters
-- Chinese Pandas Leave Japanese Zoo — The New York Times
-- Chris Mason: Both Tories and Labour feel the Reform heebie-jeebies — BBC
-- Ukrainians are sharing hacks online on how to survive winter power cuts — NPR
-- Former Citigroup executive sues bank over handling of sexual harassment claims — Financial Times
-- S&P 500 futures rise ahead of this week’s Big Tech earnings: Live updates — CNBC
-- Trump Administration Takes Another Stake in Rare Earth Sector — The New York Times
+- Pummeled by over a foot of snow, Mass. residents brace for more — WBUR
+- ICE agents to help with US security operations at Winter Olympics in Italy — France 24
+- Alex Vindman, key Trump impeachment witness, launches Florida Senate run — NBC News
+- Chris Madel Ends Run for Minnesota Governor, Citing Immigration Crackdown — The New York Times
+- How Trump’s Threats to Greenland Made Him a Liability for Europe’s Far Right — The New York Times
