@@ -1,12 +1,12 @@
-As of 2026-01-27 05:07 Los Angeles
+As of 2026-01-27 06:38 Los Angeles
 
-- Minneapolis Live Updates: Trump Pulls Bovino From ICE Operations in Minnesota — The New York Times
-- Federal agents use teargas on protesters outside ICE agents’ alleged Minneapolis hotel — The Guardian
-- Trump's immigration approval drops to record low, Reuters/Ipsos poll finds — Reuters
-- White House Distances Trump From Initial Response to Minnesota Killing — The New York Times
+- After Alex Pretti’s Killing, A Divided America Wonders What’s Next — The New York Times
+- After rocky start, Bari Weiss to cut staff, add commentators at CBS News — NPR
 - Trump raises US tariffs on South Korea imports to 25% — BBC
-- Pummeled by over a foot of snow, Mass. residents brace for more — WBUR
-- ICE agents to help with US security operations at Winter Olympics in Italy — France 24
-- Alex Vindman, key Trump impeachment witness, launches Florida Senate run — NBC News
-- Chris Madel Ends Run for Minnesota Governor, Citing Immigration Crackdown — The New York Times
+- White House distances Trump from provocative claims by Noem, others on Pretti shooting — ABC News
+- US to send ICE agents to Winter Olympics, prompting Italian anger — BBC
+- 6 people on private plane tied to Houston law firm presumed dead after crash in Maine, officials say — abc13.com
+- Brothers Charged With Sex Trafficking Wage Campaign to Shame Accusers — The New York Times
 - How Trump’s Threats to Greenland Made Him a Liability for Europe’s Far Right — The New York Times
+- ‘Situation is dire’ for Sicily town teetering on cliff edge after landslide — The Guardian
+- UK's Starmer heads to China to repair ties as he navigates tensions with US — Reuters
