@@ -1,12 +1,12 @@
-As of 2026-01-27 01:41 Los Angeles
+As of 2026-01-27 02:37 Los Angeles
 
-- White House Distances Trump From Initial Response to Minnesota Killing — The New York Times
-- Winter Storm Debilitates the South, Encasing Cities in Ice and Snow — The New York Times
-- Federal agents use teargas on protesters outside ICE agents’ alleged Minneapolis hotel — The Guardian
+- Trump raises US tariffs on South Korea imports to 25% — BBC
+- ICE Protesters Enter Minneapolis Hotel Vestibule, Setting Off a Fracas — The New York Times
 - Newsom to probe claims of Trump-critical censorship at TikTok — Politico
+- SCHOOL CLOSINGS: List of Georgia districts canceling or going virtual Tuesday — wsbtv.com
 - Chris Mason: Both Tories and Labour feel the Reform heebie-jeebies — BBC
-- India and European Union have closed a 'landmark' free trade deal, Prime Minister Modi says — CNBC
+- Ukrainians are sharing hacks online on how to survive winter power cuts — NPR
 - Indonesian marines among 80 missing in deadly West Java landslide — ABC News
 - 'Major step': French MPs vote in favour of bill to ban social media for under-15s — BBC
-- S&P 500 futures rise ahead of this week’s Big Tech earnings: Live updates — CNBC
-- Marshall does not plan to offer credit card amendment at crypto markup — Politico
+- General Motors is set to report earnings before the bell. Here's what Wall Street expects amid major electric vehicle write-downs — CNBC
+- AARP flags key Social Security, 401(k) changes not to miss — thestreet.com
