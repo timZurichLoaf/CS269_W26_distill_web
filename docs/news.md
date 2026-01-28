@@ -1,12 +1,12 @@
-As of 2026-01-28 02:38 Los Angeles
+As of 2026-01-28 03:30 Los Angeles
 
-- CNBC Daily Open: The EU-India trade deal story is not over yet — CNBC
 - NTSB blames 'deep' systemic failures for deadly midair collision near Washington D.C. — NPR
 - US announces multi-day aerial military drills in the Middle East amid Iran tensions — The Guardian
-- Family identifies fourth victim in Maine deadly plane crash tied to Houston law firm — abc13.com
+- CNBC Daily Open: The EU-India trade deal story is not over yet — CNBC
+- As Trump shuffles global order, U.K. prime minister heads to Beijing — The Washington Post
+- As Trump Promotes Economy in Iowa, Many Residents Feel Pain — The New York Times
+- South Korea’s former first lady sentenced to 20 months in prison for corruption — AP News
+- Rubio set to warn of future military action if Venezuela's new leaders stray from US goals — Yahoo
+- ‘No Kings 3’ nationwide protest planned for March — Politico
+- Yale Offers Free Tuition to Families With Incomes Under $200,000 — The New York Times
 - The DHS crisis is squeezing Susan Collins — Politico
-- Minnesota’s chief judge, a veteran in conservative legal circles, takes on ICE — Politico
-- See how much snow fell — and where it broke records — The Washington Post
-- Russian drone strike on Ukrainian passenger train kills five — The Guardian
-- North Korea's Kim: party congress to unveil plans for nuclear-war deterrent, KCNA says — Reuters
-- Diplomats Worry Xi’s Purge Will Curb Critical Contact With China — Bloomberg
