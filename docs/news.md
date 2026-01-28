@@ -1,12 +1,12 @@
-As of 2026-01-28 13:37 Los Angeles
+As of 2026-01-28 14:35 Los Angeles
 
-- Trump's National Guard deployments could cost over $1 billion this year, CBO projects — NPR
-- FBI searches Fulton County election hub in connection with Trump's 2020 election loss — NBC News
+- Live: Agents involved in shooting of Minnesota man Alex Pretti put on leave — BBC
 - Where a nor’easter will bring heavy snow, strong winds and waves this weekend — The Washington Post
-- South Africa Cancels Release of ‘Melania’ Documentary — The New York Times
-- To keep AI out of her classroom, this high school English teacher went analog — NPR
+- Trump's National Guard deployments could cost over $1 billion this year, CBO projects — NPR
 - Grok is the most antisemitic chatbot according to the ADL — The Verge
-- Greetings from Mumbai, where residents take breathing space where they can find it — NPR
-- US intelligence agencies disagree with Trump’s opposition to Chagos deal, says Starmer — The Guardian
-- Traps and limits: Why Trump bombing Iran won’t deliver what he wants — European Council on Foreign Relations
-- Dutch government is ordered to protect residents on Caribbean island of Bonaire from climate change — AP News
+- South Africa Cancels Release of ‘Melania’ Documentary — The New York Times
+- Trump dings Murkowski, Tillis after their Noem criticism, calls them ‘losers’ — Politico
+- Trump warns Iran to make nuclear deal or next attack will be 'far worse' — Reuters
+- Lawmakers condemn ‘disgusting’ attack on Ilhan Omar at Minneapolis town hall — The Guardian
+- Nervous Allies and Fox News: How Trump Realized He Had a Big Problem in Minneapolis — The New York Times
+- Philadelphia’s ambitious plan to scare off ICE — Salon.com
