@@ -1,12 +1,12 @@
-As of 2026-01-27 20:10 Los Angeles
+As of 2026-01-27 21:36 Los Angeles
 
-- As Trump Promotes Economy in Iowa, Many Residents Feel Pain — The New York Times
 - NTSB blames 'deep' systemic failures for deadly midair collision near Washington D.C. — NPR
-- Minnesota’s chief judge, a veteran in conservative legal circles, takes on ICE — Politico
-- See how much snow fell — and where it broke records — The Washington Post
-- TikTok Blames Technical Problems After Users Claimed It Blocked ICE Posts — The New York Times
+- Bari Weiss to CBS News staff: Without a shift in strategy, “we are toast.” — The Washington Post
+- Carney rolls his eyes at US Treasury secretary, says he told Trump he meant what he said at Davos — AP News
+- U.S. Population Growth Slows Sharply as Immigration Numbers Plunge — The New York Times
 - Week of action in honor of Alex Pretti, RN and all others killed by ice — National Nurses United
-- Texas Moves to Curtail H-1B Visas — The New York Times
+- See how much snow fell — and where it broke records — The Washington Post
 - The DHS crisis is squeezing Susan Collins — Politico
-- Yale Offers Free Tuition to Families With Incomes Under $200,000 — The New York Times
 - Judge rules Virginia Democrats violated law with redistricting amendment — The Washington Post
+- Diplomats Worry Xi’s Purge Will Curb Critical Contact With China — Bloomberg.com
+- Russian drone strike on Ukrainian passenger train kills five — The Guardian
