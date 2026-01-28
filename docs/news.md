@@ -1,12 +1,12 @@
-As of 2026-01-28 03:30 Los Angeles
+As of 2026-01-28 05:08 Los Angeles
 
-- NTSB blames 'deep' systemic failures for deadly midair collision near Washington D.C. — NPR
+- NTSB blames 'deep' systemic failures for deadly midair collision near Washington, D.C. — NPR
+- CBP has a history of excessive force. Critics say they were unprepared for Minnesota — NPR
 - US announces multi-day aerial military drills in the Middle East amid Iran tensions — The Guardian
+- Minnesota’s chief judge, a veteran in conservative legal circles, takes on ICE — Politico
 - CNBC Daily Open: The EU-India trade deal story is not over yet — CNBC
-- As Trump shuffles global order, U.K. prime minister heads to Beijing — The Washington Post
-- As Trump Promotes Economy in Iowa, Many Residents Feel Pain — The New York Times
-- South Korea’s former first lady sentenced to 20 months in prison for corruption — AP News
-- Rubio set to warn of future military action if Venezuela's new leaders stray from US goals — Yahoo
+- The Trump administration has secretly rewritten nuclear safety rules — NPR
+- As Minneapolis Rages, Legislators Move to Restrict ICE in Their States — The New York Times
 - ‘No Kings 3’ nationwide protest planned for March — Politico
-- Yale Offers Free Tuition to Families With Incomes Under $200,000 — The New York Times
-- The DHS crisis is squeezing Susan Collins — Politico
+- Suspect in alleged human trafficking incident shot during exchange of gunfire with Border Patrol: Sheriff — ABC News
+- In Kherson, Ukraine, Every Step Outside Risks Death by Drone — The New York Times
