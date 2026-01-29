@@ -1,12 +1,12 @@
-As of 2026-01-29 12:39 Los Angeles
+As of 2026-01-29 13:36 Los Angeles
 
-- Former Illinois sheriff's deputy sentenced to 20 years for murder of Sonya Massey — NBC News
-- DOJ files federal charges against man accused of attacking Rep. Ilhan Omar — NBC News
-- A Democratic Critic of Newsom Will Run to Succeed Him — The New York Times
-- No work, no school, no shopping: Jan. 30 nationwide general strike to protest ICE gains celebrity endorsements — Business Insider
-- Man posed as FBI agent to get Luigi Mangione out of jail: court filing — CNBC
+- FBI seizes 2020 ballots in Georgia in apparently unprecedented action, alarming local officials — ABC News
+- San Jose Mayor Matt Mahan Will Run for California Governor in 2026 — The New York Times
+- Man allegedly posed as FBI agent in apparent attempt to spring Luigi Mangione from prison — NBC News
 - ICE has ended ‘enhanced’ operations in Maine, Collins says — Politico
-- A nor’easter will bring snow and flooding. What to expect in your area. — The Washington Post
-- FBI raid in Georgia highlights Trump's 2020 election obsession and hints at possible future actions — AP News
-- What the ‘mother of all deals’ between India and the EU means for global trade — The Conversation
+- No work, no school, no shopping: Jan. 30 nationwide general strike to protest ICE gains celebrity endorsements — Business Insider
+- Klobuchar will run for Minnesota governor after Walz ends bid. Democratic senator is a Trump critic — AP News
+- Husband accused in double homicide case testifies he did not plot wife's killing despite affair with au pair — CBS News
+- Germany news: Merz says Europeans 'not subordinates' to US — dw.com
+- Trump’s wide ambitions for Board of Peace spark new support for the United Nations — AP News
 - Dutch Court Orders Netherlands to Protect Bonaire From Climate Change — The New York Times
