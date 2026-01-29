@@ -1,12 +1,12 @@
-As of 2026-01-28 23:50 Los Angeles
+As of 2026-01-29 00:52 Los Angeles
 
-- Agents involved in shooting of Minnesota man Alex Pretti put on leave — BBC
-- Nervous Allies and Fox News: How Trump Realized He Had a Big Problem in Minneapolis — The New York Times
-- Car crash into headquarters of Chabad Lubavitch movement in NYC is investigated as hate crime — NBC News
-- Amazon’s $35 Million ‘Melania’ Promotion Has Critics Questioning Its Motives — The New York Times
+- Trump warns Iran 'time is running out' for nuclear deal as US military builds up in Gulf — BBC
+- A 'bomb cyclone' and 'nor'easter' could be in the forecast for the East Coast this weekend. What are they, exactly? — Yahoo
+- Car slams into Chabad World Headquarters in Crown Heights, Brooklyn; police investigating — abc7ny.com
 - House Republicans fume at Kristi Noem as impeachment push looms — Axios
-- Where a nor’easter will bring heavy snow, strong winds and waves this weekend — The Washington Post
-- Husband testifies he did not plot wife’s killing in double murder trial connected to au pair affair — wtop.com
-- Judge blocks Trump officials from detaining refugees in Minnesota — The Guardian
-- U.S. life expectancy hits a new high, as deaths from overdoses and COVID fall — NPR
-- A Battered Iran Is Still Able to Mount a Deadly Response to U.S. Strikes — The Wall Street Journal
+- What the ‘mother of all deals’ between India and the EU means for global trade — The Conversation
+- South Africa Cancels Release of ‘Melania’ Documentary — The New York Times
+- Brendan Banfield testifies at his double-murder trial ‘there was no plan’ with au pair — CNN
+- Immigration was a Republican strength. Now some fear it's slipping away before the midterms — AP News
+- Starmer, Xi signal reset in China-UK ties, eye economic wins — Reuters
+- Xi Jinping Is Stripping Down His Military Command and Starting Over — The Wall Street Journal
