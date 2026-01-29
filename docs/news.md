@@ -1,12 +1,12 @@
-As of 2026-01-29 02:48 Los Angeles
+As of 2026-01-29 03:38 Los Angeles
 
-- Video appears to show Alex Pretti spit at federal agents, violently damage SUV days before fatal CBP shooting — foxnews.com
+- Shooting Aftermath Leaves Homeland Security Department in Turmoil — The New York Times
 - Trump warns Iran 'time is running out' for nuclear deal as US military builds up in Gulf — BBC
-- China and the UK are attempting to reset their relationship — here's how — CNBC
 - U.S. life expectancy hits a new high, as deaths from overdoses and COVID fall — NPR
-- Car slams into Chabad World Headquarters in Crown Heights, Brooklyn; police investigating — abc7ny.com
+- Trump officials trade blame as political pressure mounts over Minneapolis — Politico
+- House Republicans fume at Kristi Noem as impeachment push looms — Axios
 - 'ICE is not a law unto itself,' Minnesota judge says after immigrant released following contempt threat — CNBC
 - DHS raids are the stuff of Rand Paul’s nightmares. What will he do about it? — Politico
-- FBI executes search warrant seeking ballots from Fulton County’s 2020 election — The Washington Post
-- A shadow network in Minneapolis defies ICE and protects immigrants — AP News
-- House Republicans fume at Kristi Noem as impeachment push looms — Axios
+- Starmer and Xi hail a reset in ties, helped by large AstraZeneca investment — Reuters
+- US to prosecute captain of seized oil tanker — BBC
+- A Seat on Trump’s “Board of Peace” Costs $1 Billion. Guess Who Gets the Money. — Slate
