@@ -1,12 +1,12 @@
-As of 2026-01-29 14:36 Los Angeles
+As of 2026-01-29 15:34 Los Angeles
 
-- Man posed as FBI agent to get Luigi Mangione out of jail: court filing — CNBC
+- Dems clinch deal with White House as shutdown looms — Axios
+- Venezuelan Lawmakers Approve Sweeping Overhaul of Oil Sector — The New York Times
+- Minneapolis ICE watchers face violence, teargas and arrests. They keep showing up — The Guardian
 - Handling of Pretti investigation has some prosecutors on verge of quitting — The Washington Post
-- Senator Collins Says ICE Operation in Maine Is Over — The New York Times
-- No work, no school, no shopping: Jan. 30 nationwide general strike to protest ICE gains celebrity endorsements — Business Insider
-- Klobuchar will run for Minnesota governor after Walz ends bid. Democratic senator is a Trump critic — AP News
 - Exclusive | A Secret FBI Bust Nabbed an Alleged Drug Lord—and Rocked Ties With Mexico — The Wall Street Journal
-- Democrats block government funding package in Senate as negotiations continue to avert a shutdown — AP News
-- Japan’s Sanae Takaichi is proving a surprisingly popular prime minister — The Washington Post
 - Climate change worsened rains and floods which killed dozens in southern Africa, study shows — ABC News
-- Trump’s wide ambitions for Board of Peace spark new support for the United Nations — AP News
+- Dutch Court Orders Netherlands to Protect Bonaire From Climate Change — The New York Times
+- Ukraine receives 1,000 bodies in latest soldier swap with Russia — BBC
+- 'If Hamas won't disarm, IDF will act': Board of Peace sets deadline as preparations intensify — ynetnews.com
+- Founder of First Brands, Whose Bankruptcy Spooked Wall St., Is Indicted on Fraud Charges — The New York Times
