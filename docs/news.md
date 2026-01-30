@@ -1,12 +1,12 @@
-As of 2026-01-29 15:34 Los Angeles
+As of 2026-01-29 18:42 Los Angeles
 
-- Dems clinch deal with White House as shutdown looms — Axios
-- Venezuelan Lawmakers Approve Sweeping Overhaul of Oil Sector — The New York Times
-- Minneapolis ICE watchers face violence, teargas and arrests. They keep showing up — The Guardian
+- Trump sues IRS, Treasury Department over alleged tax return leaks — Axios
+- San Jose Mayor Matt Mahan Will Run for California Governor in 2026 — The New York Times
+- Fact Sheet: President Donald J. Trump Launches the Great American Recovery Initiative to Address the Addiction Crisis — The White House (.gov)
+- The GOP is losing one of its best issues — Politico
+- Closing arguments Friday in Brendan Banfield trial after he testifies he saw his wife stabbed before shooting attacker — CNN
+- SBI: Two people dead, two more injured in Mount Airy shooting — wral.com
+- Maps: Where the U.S. Is Building Up Military Force Near Iran — The New York Times
 - Handling of Pretti investigation has some prosecutors on verge of quitting — The Washington Post
-- Exclusive | A Secret FBI Bust Nabbed an Alleged Drug Lord—and Rocked Ties With Mexico — The Wall Street Journal
-- Climate change worsened rains and floods which killed dozens in southern Africa, study shows — ABC News
-- Dutch Court Orders Netherlands to Protect Bonaire From Climate Change — The New York Times
-- Ukraine receives 1,000 bodies in latest soldier swap with Russia — BBC
-- 'If Hamas won't disarm, IDF will act': Board of Peace sets deadline as preparations intensify — ynetnews.com
-- Founder of First Brands, Whose Bankruptcy Spooked Wall St., Is Indicted on Fraud Charges — The New York Times
+- Southern Africa Faces Devastating Flooding During Rainy Season — The New York Times
+- 2 dead in shooting in northern Canada, no active threat: Officials — Yahoo News UK
