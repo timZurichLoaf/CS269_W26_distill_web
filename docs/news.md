@@ -1,12 +1,12 @@
-As of 2026-01-30 14:34 Los Angeles
+As of 2026-01-30 15:33 Los Angeles
 
-- Mangione No Longer Faces Death Penalty in Federal Case — The New York Times
-- Carolinas Forecast to See Rare Blizzard Conditions From Winter Storm — The New York Times
-- Jeffrey Epstein sent thousands of pounds to Peter Mandelson’s husband, emails show — Financial Times
-- Justice Department defends Tulsi Gabbard’s presence at Atlanta election search — Politico
-- Severe cold persists as forecasters track another potential East Coast storm — CBS News
-- Why Iran's response to a US attack could be different this time — BBC
-- Nationwide protests begin over ICE in Minneapolis amid mixed messages from Trump — Reuters
-- Panama Canal ports will keep operating after court finds concession unconstitutional, president says — AP News
+- Catherine O’Hara, ‘Home Alone’ and ‘Schitt’s Creek’ Actress, Dies at 71 — The New York Times
+- DOJ releases tranche of Epstein files, says it has met its legal obligations — NPR
+- Senate leaders scramble to save bipartisan deal and avoid a partial shutdown — AP News
+- Justice Department opens civil rights investigation into Pretti shooting — The Washington Post
+- Graham lifts hold on government funding deal with just hours to shutdown deadline — ABC News
+- Federal Judge Drops Death Penalty Charge Against Luigi Mangione — The New York Times
+- Don Lemon arrested by federal officials in connection with church protest — The Washington Post
+- Texas May Be Losing Its Grip as America’s Fastest-Growing State — The New York Times
 - Israel reopening Gaza’s border crossing with Egypt on Sunday after long closure — AP News
-- Son of Norway crown princess to stand trial for allegedly raping 4 women — CBS News
+- Jeffrey Epstein sent thousands of pounds to Peter Mandelson’s husband, emails show — Financial Times
