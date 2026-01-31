@@ -1,12 +1,12 @@
-As of 2026-01-30 15:33 Los Angeles
+As of 2026-01-30 18:38 Los Angeles
 
-- Catherine O’Hara, ‘Home Alone’ and ‘Schitt’s Creek’ Actress, Dies at 71 — The New York Times
-- DOJ releases tranche of Epstein files, says it has met its legal obligations — NPR
-- Senate leaders scramble to save bipartisan deal and avoid a partial shutdown — AP News
+- Anti-ICE protests take place nationwide following fatal shootings in Minneapolis — ABC News
+- Coast Guard conducts search following EPIRB activation from fishing vessel off New England coast — United States Coast Guard News (.mil)
+- Hundreds of students walk out of class across Portland to protest ICE - Oregon Public Broadcasting — OPB
+- Most snow in years, blizzard conditions possible in parts of Southeast from powerful bomb cyclone — CNN
+- ICE eyeing Ohio next, where it is expected to target Haitian immigrants — MS NOW
 - Justice Department opens civil rights investigation into Pretti shooting — The Washington Post
-- Graham lifts hold on government funding deal with just hours to shutdown deadline — ABC News
-- Federal Judge Drops Death Penalty Charge Against Luigi Mangione — The New York Times
-- Don Lemon arrested by federal officials in connection with church protest — The Washington Post
+- Trump Administration Live Updates: Senate Passes Spending Package but Partial Shutdown Looms — The New York Times
 - Texas May Be Losing Its Grip as America’s Fastest-Growing State — The New York Times
+- Husband who had affair with au pair testifies on killings of wife, another man: "Hoping to de-escalate the situation" — CBS News
 - Israel reopening Gaza’s border crossing with Egypt on Sunday after long closure — AP News
-- Jeffrey Epstein sent thousands of pounds to Peter Mandelson’s husband, emails show — Financial Times
