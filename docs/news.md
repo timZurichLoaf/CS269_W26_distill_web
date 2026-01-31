@@ -1,12 +1,12 @@
-As of 2026-01-31 10:43 Los Angeles
+As of 2026-01-31 11:27 Los Angeles
 
-- Partial government shutdown begins as funding lapses despite Senate deal — CBS News
-- Federal Judge Denies Request to Temporarily Block ICE Surge in Minnesota — The New York Times
 - Live updates: Nor’easter slams Carolinas with snow, vicious winds as storm intensifies to ‘bomb’ out — FOX Weather
-- Trump Plots to Supersize His Already Monstrous Arch — The Daily Beast
-- Search Suspended for 6 Missing in Boat Off the Coast of Massachusetts — The New York Times
-- More than 300 anti-ICE protests planned across US this weekend — The Guardian
 - Bovino Is Said to Have Mocked Prosecutor’s Jewish Faith on Call With Lawyers — The New York Times
-- ‘WTF’: Pro-gun groups warn vulnerable GOP seats on the line after Pretti response — Politico
-- A Minnesota School District Guards Against ICE, From Dawn to Dusk — The New York Times
-- LIVE UPDATES: Snow falling across north Georgia, starting to accumulate — WSB-TV
+- More than 300 anti-ICE protests planned across US this weekend — The Guardian
+- DR Congo: More than 200 killed in mine collapse — BBC
+- Marjorie Taylor Greene defends arrest of Don Lemon on civil rights charges: 'That's activism' — Fox News
+- The West’s water war arrives in Washington — Politico
+- Agents were pursuing an immigrant when they killed Alex Pretti. Now, he shares his story. — CBS News
+- Pho, handwarmers, grief and loss: a week on the block where Alex Pretti was killed — The Guardian
+- How Fear of ICE Upended Life in One Minnesota School District — The New York Times
+- LIVE UPDATES: Snow falls across north Georgia, temperatures dropping tonight — WSB-TV
