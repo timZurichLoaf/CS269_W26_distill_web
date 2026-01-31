@@ -1,12 +1,12 @@
-As of 2026-01-31 11:27 Los Angeles
+As of 2026-01-31 12:34 Los Angeles
 
+- Federal Judge Denies Request to Temporarily Block ICE Surge in Minnesota — The New York Times
 - Live updates: Nor’easter slams Carolinas with snow, vicious winds as storm intensifies to ‘bomb’ out — FOX Weather
-- Bovino Is Said to Have Mocked Prosecutor’s Jewish Faith on Call With Lawyers — The New York Times
-- More than 300 anti-ICE protests planned across US this weekend — The Guardian
-- DR Congo: More than 200 killed in mine collapse — BBC
-- Marjorie Taylor Greene defends arrest of Don Lemon on civil rights charges: 'That's activism' — Fox News
-- The West’s water war arrives in Washington — Politico
+- What have we learned from the newly released Epstein files? — The Guardian
 - Agents were pursuing an immigrant when they killed Alex Pretti. Now, he shares his story. — CBS News
-- Pho, handwarmers, grief and loss: a week on the block where Alex Pretti was killed — The Guardian
+- Judge orders 5-year-old Liam Ramos and his father be released from immigration detention — CNN
+- Bovino Is Said to Have Mocked Prosecutor’s Jewish Faith on Call With Lawyers — The New York Times
+- Trump is pressuring Cuba. It’s putting Mexico in a tough spot. — Politico
+- ‘Backing down isn’t an option’: Minnesota ICE shootings mobilize Americans to join ICE observer groups — The Guardian
 - How Fear of ICE Upended Life in One Minnesota School District — The New York Times
-- LIVE UPDATES: Snow falls across north Georgia, temperatures dropping tonight — WSB-TV
+- Australian Open 2026: Elena Rybakina beats Aryna Sabalenka to win women's singles title — BBC
