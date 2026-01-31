@@ -1,12 +1,12 @@
-As of 2026-01-31 07:31 Los Angeles
+As of 2026-01-31 08:39 Los Angeles
 
-- Live updates: Arrests made as protesters clash with officers in DTLA after 'ICE Out' protest — ABC7 Los Angeles
+- DOJ concludes Epstein files review with release of 3.5 million records — Axios
+- More than 300 anti-ICE protests planned across US this weekend — The Guardian
 - 6 Missing as Search Continues for Boat Off the Coast of Massachusetts — The New York Times
 - 2nd Amendment advocates issue dire warning over Trump’s Pretti gun remarks — Politico
-- Houston runoff sets up next Democratic generational fight — Politico
-- New SNAP work requirements set to go into effect on Feb. 1 with millions at risk of losing benefits — ABC News
-- A Minnesota School District Guards Against ICE, From Dawn to Dusk — The New York Times
+- A US House special election in Texas is set to narrow the GOP majority even further — CNN
+- Sitting Judge and Three Others Charged with Scheme to Steal Hundreds of Thousands of Dollars from Vulnerable and Incapacitated Wards — Department of Justice (.gov)
+- Partial government shutdown begins as funding lapses despite Senate deal — CBS News
 - This Minneapolis family has been in hiding for weeks, fearful of being deported — NBC News
-- Texas A&M University cancels programs in women's and gender studies — NPR
-- Brace for brutal cold as bomb cyclone drives bitter winds into D.C. — The Washington Post
-- After Bovino Leaves, Minnesotans Search for Signs of Change in Crackdown — The New York Times
+- LIVE UPDATES: Snow falling across north Georgia, starting to accumulate — WSB-TV
+- Texas A&M Ends Women’s Studies and Overhauls Hundreds of Classes on Race and Gender — The New York Times
