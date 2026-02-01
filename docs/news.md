@@ -1,12 +1,12 @@
-As of 2026-01-31 15:30 Los Angeles
+As of 2026-01-31 19:20 Los Angeles
 
-- Minnesota ICE surge upheld as judge finds 'balance of harms' lacking — Axios
+- Partial government shutdown begins as funding lapses despite Senate deal — CBS News
+- Federal Judge Denies Request to Temporarily Block ICE Surge in Minnesota — The New York Times
+- Israeli air strikes kill at least 32 Palestinians in Gaza, rescue officials say — BBC
+- 12 states are hoping for early spots on Democrats' 2028 primary calendar — NBC News
+- Winter Storm Hits the Carolinas, Bringing Dangerous Ice and Snow — The New York Times
 - Milan protesters call for U.S. ICE agents to leave Italy as Winter Games approach — NPR
-- More than 300 anti-ICE protests planned across US this weekend — The Guardian
-- Winter Storm Hits the Carolinas — The New York Times
 - Chicago mayor signs executive order calling on police to investigate federal immigration agents accused of misconduct — CNN
-- Agents were pursuing an immigrant when they killed Alex Pretti. Now, he shares his story. — CBS News
-- Trump is pressuring Cuba. It’s putting Mexico in a tough spot. — Politico
-- LIVE UPDATES: Snow falls across north Georgia, temperatures dropping tonight — WSB-TV
-- These Gazans May Finally Get a Lifeline to the World — The New York Times
-- Iran: Explosion hits Bandar Abbas Port — reports — dw.com
+- ‘What the hell do we do with this issue’: Mexico confronts Trump’s Cuba pressure — Politico
+- New ICE memo gives deportation officers more leeway to conduct warrantless arrests — CBS News
+- Live updates: Hundreds gather for another anti-ICE protest in DTLA after 8 arrests on Friday — ABC7 Los Angeles
