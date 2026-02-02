@@ -1,12 +1,12 @@
-As of 2026-02-01 18:52 Los Angeles
+As of 2026-02-01 21:05 Los Angeles
 
-- Starmer Urges Former Prince Andrew to Testify to Congress Over Epstein Ties — The New York Times
+- Todd Blanche says review of Jeffrey Epstein sex-trafficking case ‘is over’ — The Guardian
+- Police officer killed, another critically wounded in shooting at Georgia hotel — ABC News
+- Epstein victims' lawyers ask court to order DOJ to take down Epstein files website — ABC News
 - Two CBP Agents Identified in Alex Pretti Shooting — ProPublica
+- Starmer Urges Former Prince Andrew to Testify to Congress Over Epstein Ties — The New York Times
 - Rising crime, inequality and disenchantment: What’s at stake in Costa Rica’s elections — CNN
-- Don Lemon’s arrest balances freedom of religion vs. freedom of the press, Todd Blanche says — Politico
-- Can Tom Homan De-escalate ICE Tensions in Minnesota? — The New York Times
-- Nearly 60 vehicles collide on both sides of Calif. state highway — SFGATE
-- 5-year-old Liam Conejo Ramos and father return to Minnesota from ICE facility in Texas — AP News
 - ‘Historic storm’ delivers biggest snowfall in decades for North Carolina — The Washington Post
 - Federal Courts Undercut Trump’s Mass Deportation Campaign — The New York Times
-- Democrats post early fundraising edge in marquee 2026 Senate races — Politico
+- Mayor of Portland, Oregon, demands ICE leave the city after federal agents gas protesters — AP News
+- Can Tom Homan De-escalate ICE Tensions in Minnesota? — The New York Times
