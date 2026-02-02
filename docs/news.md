@@ -1,12 +1,12 @@
-As of 2026-02-02 06:51 Los Angeles
+As of 2026-02-02 07:43 Los Angeles
 
-- Watch Live: Groundhog Day 2026, will Punxsutawney Phil see his shadow? — CBS News
-- The House races to end shutdown. And, Trump wants to close Kennedy Center for 2 years — NPR
-- Mayor of Portland, Oregon, demands ICE leave the city after federal agents gas protesters — AP News
-- Justice Department expected to ramp up efforts to deliver on Trump’s ‘weaponization’ priorities — CNN
+- Gaza Crossing to Egypt Reopens in Step Forward for Fragile Cease-Fire — The New York Times
 - Hemp and marijuana are the same species. So why all the different laws? — NPR
+- Norway's PM agrees crown princess had 'poor judgement' over Epstein links — BBC
 - The Education Department's efforts to fire staff cost over $28 million, watchdog says — NPR
-- ‘Historic storm’ delivers biggest snowfall in decades for North Carolina — The Washington Post
-- Fear and Anger Grow as Thousands Remain Without Power in the South — The New York Times
-- For Some Americans, the End of Obamacare Subsidies Means Falling Off a Financial Cliff — The New York Times
+- Venezuela's first shipment of liquefied petroleum gas has left Venezuela bound for the US — ABC News
+- 5-year-old Liam Conejo Ramos and father return to Minnesota from ICE facility in Texas — AP News
+- Meta drops $65 million into super PACs to boost tech-friendly state candidates — Politico
+- Son of Norway’s crown princess arrested before his trial on rape and other charges — AP News
+- Hazing Death in Arizona Leads to Charges for 3 Fraternity Leaders — The New York Times
 - Japan PM Takaichi's party poised for landslide victory, poll shows — Reuters
