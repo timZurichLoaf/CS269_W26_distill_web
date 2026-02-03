@@ -1,12 +1,12 @@
-As of 2026-02-02 15:36 Los Angeles
+As of 2026-02-02 18:49 Los Angeles
 
-- Homeland Security officers in Minneapolis will be issued body cameras, Noem says — CNN
-- Tulsi Gabbard accused of trying to 'bury' whistleblower complaint — NBC News
-- Clintons’ latest offer to avoid contempt vote rebuffed by Republican chairman — CNN
-- U.S.-Iran nuclear talks planned for Friday amid military buildup — Axios
-- Brendan Banfield convicted of double murder in au pair affair trial — CNN
+- Trump, in an Escalation, Calls for Republicans to ‘Nationalize’ Elections — The New York Times
+- The Trump Administration exempts new nuclear reactors from environmental review — NPR
 - Trump Drops Demand for Cash From Harvard After Stiff Resistance — The New York Times
-- Justice Dept. demotes Ed Martin, stripping Trump ally of most authority — The Washington Post
-- ‘It’s Been Brutal’: Twin Cities Economy Suffers Under ICE Crackdown — The New York Times
+- Police assess reports of alleged misconduct after Mandelson emails published — BBC
+- Father of 5-year-old detained in Minnesota disputes government assertion he abandoned the boy — AP News
+- Populist conservative Laura Fernández wins Costa Rica's presidential election — NPR
+- Federal Judge Blocks Trump Administration From Ending TPS for Haitians — The New York Times
+- Judge Hands Trump a Fifth Loss in His Effort to Halt Offshore Wind Projects — The New York Times
 - What Jared Kushner's 'New Gaza' plan includes, and what it leaves out — NPR
-- Trump Administration Sued Over Ban on Immigration From 75 Countries — The New York Times
+- Japan retrieves rare earth-rich mud from seabed to lower reliance on China — ABC News
