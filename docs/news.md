@@ -1,12 +1,12 @@
-As of 2026-02-02 23:04 Los Angeles
+As of 2026-02-03 00:51 Los Angeles
 
 - Trump calls on Republicans to ‘nationalize’ future elections — CNN
-- Trump Drops Demand for Cash From Harvard After Stiff Resistance — The New York Times
-- Brendan Banfield Found Guilty in Virginia Double Murder Trial — The New York Times
+- Trump Is Said to Have Dropped Demand for Cash From Harvard — The New York Times
 - Maryland House passes new congressional map, setting up a showdown with the state Senate — NBC News
 - Populist conservative Laura Fernández wins Costa Rica's presidential election — NPR
-- U.S. and Iranian Officials to Meet as Trump’s Threats Loom — The New York Times
-- Mayor of Portland, Oregon, Calls for ICE to Leave After Protesters Are Tear-Gassed — The New York Times
-- RBA Governor Bullock speaks on interest rate outlook after the 25 bps hike — FXStreet
+- Ukraine agrees multi-tier plan for enforcing any ceasefire with Russia — Financial Times
+- EU has 'open mind' on UK customs union debate, says commissioner — BBC
 - What Jared Kushner's 'New Gaza' plan includes, and what it leaves out — NPR
 - Macron enters his lame duck era — politico.eu
+- China Bans Hidden Car Door Handles in World-First Safety Policy — Bloomberg
+- Why software stocks are getting pummelled — Hacker News
