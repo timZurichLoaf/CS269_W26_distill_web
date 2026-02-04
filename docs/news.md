@@ -1,12 +1,12 @@
-As of 2026-02-04 03:40 Los Angeles
+As of 2026-02-04 05:18 Los Angeles
 
-- 'Painful times in my marriage' - Melinda French Gates reacts to ex-husband in Epstein files — BBC
-- Renée Good’s brothers, others describe assaults, shootings at hearing — The Washington Post
-- House Democrats help Mike Johnson end government shutdown, fund DHS and ICE — Axios
-- Mother says asking 13-year-old son to swim four hours to save family ‘one of the hardest decisions’ — The Guardian
-- Ex-DOJ official's call for pro-Trump federal prosecutors could be 'dangerous,' former prosecutor warns — ABC News
-- Putin 'kept his word' — Trump reacts to latest Russian strike on Ukraine — The Kyiv Independent
-- Columbia Heights fourth-grader released after a month in ICE detention — Sahan Journal
+- Trump wants Republicans to ‘nationalize’ US elections. The Constitution might get in the way — CNN
+- A Winter of Anguish for Minneapolis Children — The New York Times
+- Israeli strikes kill 20 in Gaza, medics say, after soldier wounded — BBC
 - Judge restricts federal use of tear gas, munitions at Portland ICE protests — OregonLive.com
-- U.S.-Iranian Talks Are Still Expected After Gulf Flare-Ups — The Wall Street Journal
-- William Stevenson, Jill Biden’s Ex-Husband, Is Accused of Killing His Current Wife — The New York Times
+- The 10 races that will decide control of the US Senate — CNN
+- Trump, 79, Lets Cankles Slip in Photo With World Leader — The Daily Beast
+- Racial Debate Rattles Texas Democratic Primary for Senate — The New York Times
+- Ryan Routh, convicted of trying to assassinate Donald Trump, to be sentenced — NPR
+- At Least 15 Die in Rare Collision Between Migrant Boat and Greek Patrol Vessel — The New York Times
+- Trump-led abuses amid ‘democratic recession’ put human rights in peril, HRW report says — The Guardian
