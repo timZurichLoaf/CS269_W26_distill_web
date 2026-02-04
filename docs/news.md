@@ -1,12 +1,12 @@
-As of 2026-02-04 11:03 Los Angeles
+As of 2026-02-04 12:45 Los Angeles
 
-- Ryan Routh, convicted of trying to assassinate Donald Trump, to be sentenced — NPR
+- The Supreme Court lets California use its new, Democratic-friendly congressional map — NPR
+- Man Convicted of Trying to Assassinate Trump Gets Life Sentence — The New York Times
 - What the Crackdown Has Done to Minneapolis Children — The New York Times
-- Trump grants tariff breaks to 'politically connected' companies, Senate Dems say — NPR
-- Scoop: Plans for Iran nuclear talks are collapsing, U.S. officials say — Axios
-- Son of Norway's crown princess holds back tears giving evidence at rape trial — BBC
-- Justice Department plans to seek death penalty for man accused of shooting National Guard members — CNN
+- Democrats say ‘dramatic changes’ needed for immigration enforcement as DHS funding negotiations continue – live — The Guardian
+- U.S.-Iran nuclear talks back on after Arab leaders lobby White House — Axios
+- Trump’s border czar pulling 700 immigration officers out of Minnesota immediately — AP News
+- What to know about the disappearance of Nancy Guthrie, mother of 'Today' show's Savannah Guthrie — AP News
+- Minneapolis Police Chief Fears Long-Term Damage From Immigration Crackdown — The New York Times
 - Photos: Scenes from the 150th Westminster Dog Show : The Picture Show — NPR
-- Federal Crackdown Means Another Repair Job for the Minneapolis Police Chief — The New York Times
-- As cold-stunned invasive iguanas fall from trees, Floridians scoop them up for killing — The Washington Post
-- South Korea Questions Cram School Culture and Childhood Stress — The New York Times
+- US wants to create a critical minerals trading bloc with its allies to counter China — AP News
