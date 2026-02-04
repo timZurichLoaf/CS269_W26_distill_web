@@ -1,12 +1,12 @@
-As of 2026-02-04 08:59 Los Angeles
+As of 2026-02-04 09:57 Los Angeles
 
-- Son of Norway's crown princess holds back tears giving evidence at rape trial — BBC
-- A Winter of Anguish for Minneapolis Children — The New York Times
-- Standoff over ICE tactics could trigger another partial government shutdown — The Washington Post
-- Trump grants tariff breaks to 'politically connected' companies, Senate Dems say — NPR
-- Judge restricts federal use of tear gas, munitions at Portland ICE protests — OregonLive.com
-- Ryan Routh, convicted of trying to assassinate Donald Trump, to be sentenced — NPR
-- Iran Plays Hardball With the U.S. to Throw It Off Balance — The Wall Street Journal
-- House Democrats help Mike Johnson end government shutdown, fund DHS and ICE — Axios
 - Trump Repeats Call to ‘Nationalize’ Elections, as White House Walks It Back — The New York Times
+- Son of Norway's crown princess holds back tears giving evidence at rape trial — BBC
+- Gabbard says Trump asked her to attend FBI raid at Georgia elections hub — Axios
+- Trump grants tariff breaks to 'politically connected' companies, Senate Dems say — NPR
+- Trilateral US-Ukraine-Russia peace talks resume in UAE after major energy attack — ABC News
+- US and Iran to seek de-escalation in nuclear talks in Oman, regional official says — Reuters
+- What to know about the disappearance of Nancy Guthrie, mother of 'Today' show's Savannah Guthrie — AP News
+- Trump admin. attorney leaves Minnesota after telling judge her job ‘sucks’ amid crush of immigration cases — CNN
+- What the Crackdown Has Done to Minneapolis Children — The New York Times
 - Federal Crackdown Means Another Repair Job for the Minneapolis Police Chief — The New York Times
