@@ -1,12 +1,12 @@
-As of 2026-02-04 06:50 Los Angeles
+As of 2026-02-04 07:53 Los Angeles
 
-- House Democrats help Mike Johnson end government shutdown, fund DHS and ICE — Axios
 - Trump admin to withdraw 700 federal officers from Minnesota: Homan — CNBC
 - Andrew and Epstein asked exotic dancer for 'sex acts', legal letter claims — BBC
 - A Winter of Anguish for Minneapolis Children — The New York Times
 - The 10 races that will decide control of the US Senate — CNN
-- Trilateral US-Ukraine-Russia peace talks resume in UAE after major energy attack — ABC News
-- Minneapolis Police Chief Fears Long-Term Damage From Immigration Crackdown — The New York Times
-- Trump wants Republicans to ‘nationalize’ US elections. The Constitution might get in the way — CNN
-- Racial Debate Rattles Texas Democratic Primary for Senate — The New York Times
-- Gateway sues Trump administration over freezing Hudson River tunnel funding — Gothamist
+- Trump grants tariff breaks to 'politically connected' companies, Senate Dems say — NPR
+- Ryan Routh, convicted of trying to assassinate Donald Trump, to be sentenced — NPR
+- Police dog helps rescue North Carolina boy with special needs during snowstorm — cbsnews.com
+- Federal Crackdown Means Another Repair Job for the Minneapolis Police Chief — The New York Times
+- Backed by Mamdani, D.S.A. Candidate Wins Election for Mayor’s Old Seat — The New York Times
+- The last US-Russian nuclear pact is about to expire, ending a half-century of arms control — AP News
