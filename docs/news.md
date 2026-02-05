@@ -1,12 +1,12 @@
-As of 2026-02-05 05:20 Los Angeles
+As of 2026-02-05 06:53 Los Angeles
 
-- New Start: US-Russia nuclear weapons treaty due to expire raising fears of arms race — BBC
-- Melinda French Gates Addresses New References to Bill Gates in Epstein Files — The New York Times
-- Justice Department released 3 million pages of Epstein files. What did we learn? — NPR
-- What to know about the congressional fight over ICE restrictions, and another possible government shutdown — ABC News
-- Dems embrace "law and order" in ICE shutdown fight — Axios
-- ICE can't make warrantless arrests in Oregon unless there's risk of escape, judge rules — NPR
+- Poll: Two-thirds of Americans say ICE has 'gone too far' in immigration enforcement — NPR
+- Scoop: U.S. and Russia agree to observe New START nuclear pact after expiration — Axios
+- Democrats plan DHS funding offer as Thune floats long-term punt — Politico
+- Prosecutor Fired After Voicing Frustration With Immigration Caseload — The New York Times
+- 'I never left your side': Emails reveal more about Mandelson's Epstein friendship — BBC
+- Housecleaner said multiple illnesses tied to Las Vegas house with possible bio lab: Police report — ABC News
+- "Schumer needs to get the hell out": House Democrats fume over DHS funding talks — Axios
 - Steve Bannon calls for Trump to deploy ICE and military troops to polling sites — Politico
-- Study ties particle pollution from wildfire smoke to 24,100 US deaths per year — AP News
-- ICE gets even worse ratings in polling after Pretti's fatal shooting; majority calling for Noem's removal — ABC News
-- Fired after gender identity lesson, professor sues Texas A&M, arguing her free speech rights were violated — The Texas Tribune
+- Spanberger takes further steps to remove Virginia from ICE operations — The Washington Post
+- House rejects D.C. tax changes, potentially costing the city $600M in revenue — The Washington Post
