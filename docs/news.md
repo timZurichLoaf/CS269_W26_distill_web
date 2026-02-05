@@ -1,12 +1,12 @@
-As of 2026-02-05 13:38 Los Angeles
+As of 2026-02-05 14:36 Los Angeles
 
 - Scoop: U.S. and Russia agree to observe New START nuclear pact after expiration — Axios
-- Exclusive | Trump Administration to Make It Easier to Fire 50,000 Federal Workers — The Wall Street Journal
+- Trump Strips Job Protections From Thousands of Federal Workers — The New York Times
+- At least 3 dead, 6 injured after car crashes into 99 Ranch Market in Westwood — ABC7 Los Angeles
 - Some Public Health Service officers deployed in detention centers suffer 'moral distress' — NPR
-- Trump to launch TrumpRx drug discount site. Here's when — Axios
-- Cuba open to talks with US ‘without pressure’ after months of Trump threats — The Guardian
-- Top Oversight Republican mulls Bill Gates subpoena in Epstein probe — Politico
+- White House Offers Shifting Story on Gabbard’s Presence at Georgia Raid — The New York Times
+- The White House is launching direct-to-consumer drug site Trump Rx. Here's what to know — CNBC
+- Austin Beutner drops out of L.A. mayor’s race, citing daughter’s death — Los Angeles Times
 - Clintons keep pushing for public hearings as Comer digs in his heels — Politico
-- Iran, US to negotiate over proxy terror, ballistic missiles — The Jerusalem Post
-- ‘It’s Collective Punishment’: Iran Exacts Heavy Price on Protest Supporters — The New York Times
-- Famine is threatening more of war-torn Sudan’s Darfur region as an attack in the south kills 22 — AP News
+- "Schumer needs to get the hell out": House Democrats fume over DHS funding talks — Axios
+- Trump rows back his criticism of UK’s Chagos Islands deal — Financial Times
