@@ -1,12 +1,12 @@
-As of 2026-02-04 23:53 Los Angeles
+As of 2026-02-05 00:56 Los Angeles
 
-- Read: Dems outline 10 demands to GOP in ICE funding fight — Axios
+- China’s Xi Presses Trump on Taiwan in Phone Call — The New York Times
+- Democrats plan DHS funding offer as Thune floats long-term punt — Politico
 - Melinda French Gates Addresses New References to Bill Gates in Epstein Files — The New York Times
-- Intelligence director Tulsi Gabbard’s office obtained and tested voting machines in Puerto Rico — CNN
 - After crushing protests, Iran's supreme leader now tries to avert a U.S. attack — PBS
-- U.S.-Iran nuclear talks back on after Arab leaders lobby White House — Axios
-- Housecleaner said multiple illnesses tied to Las Vegas house with possible bio lab: Police report — ABC News
-- Ryan Routh, Man Convicted of Trying to Assassinate Trump, Gets Life Sentence — The New York Times
+- Trump’s Call to ‘Nationalize’ Elections Adds to State Officials’ Alarm — The New York Times
+- Maxine Waters’ ‘Can you shut him up’ moment with Scott Bessent, explained — CNN
+- Steve Bannon calls for Trump to deploy ICE and military troops to polling sites — Politico
+- ICE agents can't make warrantless arrests in Oregon unless there's a risk of escape, US judge rules — AP News
 - Don’t mention ‘Article 5,’ Finland warns US on Ukraine — Politico
-- Texas A&M professor files suit after firing over gender identity lesson — Politico
-- S.F. teachers on brink of a strike even as fact-finding report favors district — San Francisco Chronicle
+- Dems embrace "law and order" in ICE shutdown fight — Axios
