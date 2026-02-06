@@ -1,12 +1,12 @@
-As of 2026-02-06 03:40 Los Angeles
+As of 2026-02-06 05:17 Los Angeles
 
-- AOC and NY House Dems endorse Hochul — Politico
+- Democrats’ 10 demands to ‘rein in’ ICE – the full list of proposed reforms — The Guardian
+- Iran Is at Work on Missile and Nuclear Sites, Satellite Images Show — The New York Times
+- Minneapolis now has daily deportation flights. One man has been documenting them — NPR
+- Even More Higher Ed Names in the Epstein Files — Inside Higher Ed
+- Hundreds of Agents Left Minnesota, but Residents Are Seeing Little Change — The New York Times
 - Democrats involved in 'illegal orders' video say they won't cooperate with DOJ probe — NBC News
+- House Republicans prepare full-court press for voting restrictions — Politico
+- Virginia Democrats Propose New Congressional Maps Ahead of Midterms — The New York Times
 - US strikes another boat in the eastern Pacific, killing 2 — cnn.com
-- DHS has requested expedited deportation proceedings against family of Liam Conejo Ramos — MPR News
-- New Jersey 11th Congressional District Special Primary Election Results 2026 — The New York Times
-- Donald Trump endorses Japan’s Sanae Takaichi ahead of general election — Financial Times
-- Famine is threatening more of war-torn Sudan’s Darfur region as an attack in the south kills 22 — AP News
-- Trump signals willingness to defend Diego Garcia military base if future deal threatens US access — foxnews.com
-- SPLM/A-IO confirms ‘tactical’ withdrawal as SSPDF claims victory in Jonglei — Sudans Post
-- Carney Increases E.V. Investments as Trump’s Trade Policy Disrupts Canada’s Auto Industry — The New York Times
+- Japan’s Takaichi eyes decisive mandate as polls point to snap election landslide — CNBC
