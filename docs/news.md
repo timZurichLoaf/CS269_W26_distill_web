@@ -1,12 +1,12 @@
-As of 2026-02-06 09:52 Los Angeles
+As of 2026-02-06 11:02 Los Angeles
 
+- Racist video of Obamas removed from Trump's social account — Axios
 - Court records: Chicago immigration raid was about squatters, not Venezuelan gangs — NPR
-- Minneapolis now has daily deportation flights. One man has been documenting them — NPR
-- Democrats’ 10 demands to ‘rein in’ ICE – the full list of proposed reforms — The Guardian
-- Steve Kornacki: Democratic primary season kicks off with an anti-establishment earthquake — NBC News
-- Car crashes into LA grocery store; 3 dead, 2 critically injured: Officials — ABC News
+- Senators Clash Over Immigration Enforcement, Risking a D.H.S. Shutdown — The New York Times
+- Westwood crash: Victim identified after car crashes into 99 Ranch Market — ABC7 Los Angeles
 - Ronald Hicks to be installed as 11th archbishop of New York — NPR
-- Trump Shares Video Portraying the Obamas as Apes — The New York Times
-- US and Russia agree to reestablish military dialogue after Ukraine talks — apnews.com
+- Trump shifts explanation of why DNI Gabbard was at FBI Georgia election office raid — ABC News
+- Suspect in 2012 Benghazi attack arrested and brought to the U.S. — cbsnews.com
 - ‘Grind the country to a halt’: Democrat urges national strike if Trump meddles in midterms — The Guardian
-- As Minnesota Reels Amid Immigration Crackdown, a Sheriff Agonizes Over Her Role — The New York Times
+- The Difference That ICE Watchers Are Making in Minnesota — The New York Times
+- What is the SAVE America Act? Here's what to know about the GOP elections bill — cbsnews.com
