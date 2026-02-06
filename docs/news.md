@@ -1,12 +1,12 @@
-As of 2026-02-06 05:17 Los Angeles
+As of 2026-02-06 06:48 Los Angeles
 
 - Democrats’ 10 demands to ‘rein in’ ICE – the full list of proposed reforms — The Guardian
 - Iran Is at Work on Missile and Nuclear Sites, Satellite Images Show — The New York Times
-- Minneapolis now has daily deportation flights. One man has been documenting them — NPR
-- Even More Higher Ed Names in the Epstein Files — Inside Higher Ed
-- Hundreds of Agents Left Minnesota, but Residents Are Seeing Little Change — The New York Times
-- Democrats involved in 'illegal orders' video say they won't cooperate with DOJ probe — NBC News
-- House Republicans prepare full-court press for voting restrictions — Politico
-- Virginia Democrats Propose New Congressional Maps Ahead of Midterms — The New York Times
-- US strikes another boat in the eastern Pacific, killing 2 — cnn.com
-- Japan’s Takaichi eyes decisive mandate as polls point to snap election landslide — CNBC
+- Europe Accuses TikTok of ‘Addictive Design’ and Pushes for Change — The New York Times
+- Scoop: U.S. and Russia agree to observe New START nuclear pact after expiration — Axios
+- DHS negotiations have yet to get underway , Thune says, as shutdown clock ticks — Politico
+- Trump Posts Video Portraying the Obamas as Apes — The New York Times
+- In rare move, this northern Minnesota county is working with the feds to make arrests amid ICE surge — Star Tribune
+- As Minnesota Reels Amid Immigration Crackdown, a Sheriff Agonizes Over Her Role — The New York Times
+- Elections overhaul takes center stage in House as hard-right pressure mounts — Politico
+- The Real Risks of the Saudi-UAE Feud — Foreign Affairs
