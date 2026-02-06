@@ -1,12 +1,12 @@
-As of 2026-02-06 14:34 Los Angeles
+As of 2026-02-06 15:33 Los Angeles
 
+- Authorities Investigate a New Message in Nancy Guthrie Kidnapping Case — The New York Times
 - Trump removes video with racist clip depicting Obamas as apes — BBC
-- Missing records from Bondi and Patel draw scrutiny in Epstein release — Axios
-- Live Updates: Trump Posts Video Portraying Obamas as Apes, U.S. and Iran Hold Nuclear Talks — The New York Times
 - Maps show accumulating snow, possibly record-breaking cold in the Boston weather forecast this weekend — cbsnews.com
-- ‘Grind the country to a halt’: Democrat urges national strike if Trump meddles in midterms — The Guardian
-- GOP fast tracks monster voter suppression bill that could disenfranchise millions by requiring proof of citizenship at polls — Democracy Docket
+- ‘It’s pissing people off’: Centrist Democrats are livid with AIPAC after primary fiasco — Politico
+- Leadership changes in Minnesota follow tensions among agencies over immigration enforcement tactics — apnews.com
+- Poll: Two-thirds of Americans say ICE has 'gone too far' in immigration enforcement — NPR
 - Paul Weiss Partners Turned on Brad Karp After Learning Extent of His Epstein Ties — The New York Times
 - State election officials brace for possible Trump interference in midterm results — Politico
-- US appeals court rejects challenge to Trump's efforts to ban DEI — Yahoo
-- Opinion | A federal judge schools chaotic Kristi Noem — The Washington Post
+- U.S. Seeks to Expedite Deportation of 5-Year-Old Liam Conejo Ramos — The New York Times
+- Luigi Mangione speaks out in protest as judge sets state murder trial for June 8 — apnews.com
