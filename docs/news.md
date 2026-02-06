@@ -1,12 +1,12 @@
-As of 2026-02-05 15:31 Los Angeles
+As of 2026-02-05 18:46 Los Angeles
 
-- Scoop: U.S. and Russia agree to observe New START nuclear pact after expiration — Axios
-- Trump Strips Job Protections From Thousands of Federal Workers — The New York Times
-- Keir Starmer apologises to Epstein victims for believing Mandelson's 'lies' — BBC
-- What a crowded congressional primary in N.J. says about the state of Democrats — NPR
+- Trump says he won’t extend nuclear arms treaty with Russia — Politico
+- New Jersey House Primary Special Election 2026 Live Results — NBC News
+- Trump officials propose testing a citizenship question amid a push to alter the census — NPR
 - Hillary Clinton wants testimony on Jeffrey Epstein in public: 'Let's stop the games' — CNBC
 - Top Oversight Republican mulls Bill Gates subpoena in Epstein probe — Politico
+- San Francisco public school teachers announce strike — The San Francisco Standard
 - DHS’ problems go farther than Minneapolis. Republicans are noticing. — Politico
-- Los Angeles Civic Leader Austin Beutner Drops Out of Mayor’s Race — The New York Times
-- Trump rows back his criticism of UK’s Chagos Islands deal — Financial Times
-- France 36-14 Ireland: Les Bleus open Six Nations defence with thumping win in Paris — BBC
+- Senators Clash Over Immigration Enforcement, Risking a D.H.S. Shutdown — The New York Times
+- Virginia Democrats Propose New Congressional Maps Ahead of Midterms — The New York Times
+- Trump promises Schumer funding for NY tunnel project — if Penn Station and Dulles Airport are renamed after him — cnn.com
