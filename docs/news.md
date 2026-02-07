@@ -1,12 +1,12 @@
-As of 2026-02-06 20:44 Los Angeles
+As of 2026-02-06 21:50 Los Angeles
 
-- Authorities Investigate a New Message in Nancy Guthrie Kidnapping Case — The New York Times
-- Trump’s harsh immigration tactics are taking a political hit — NPR
-- TrumpRx: See the 43 drugs available on the Trump administration's new discounted drug site — cbsnews.com
-- A Pro-Israel Group’s Move Backfires as Gaza Tensions Flare in Midterms — The New York Times
-- Hegseth Says Defense Department Will Cut Ties With Harvard — The New York Times
+- Appeals court backs Trump’s mass detention policy — Politico
 - Canada plants a flag in Greenland — Politico
+- Contentious Herbicide Is Greenlit in a Blow to the MAHA Agenda — The New York Times
+- 100 million on alert for dangerous cold, as some see coldest winds of season — ABC News
 - California Sues a Children’s Hospital to Maintain Transgender Health Care — The New York Times
+- ‘It’s pissing people off’: Centrist Democrats are livid with AIPAC after primary fiasco — Politico
+- TrumpRx: See the 43 drugs available on the Trump administration's new discounted drug site — cbsnews.com
 - UNITED STATES-INDIA JOINT STATEMENT — The White House (.gov)
-- The Real Reason Trump Wants to Let Our Nuclear Weapons Treaty With Russia Die — Slate
 - Will Sunday's snap election gamble pay off for Japan's first female premier? — BBC
+- As West goes after Russia’s oil fleet, Moscow fears for its war funding — The Washington Post
