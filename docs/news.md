@@ -1,12 +1,12 @@
-As of 2026-02-06 23:38 Los Angeles
+As of 2026-02-07 00:41 Los Angeles
 
-- Trump envoys met directly with Iran foreign minister in Oman — Axios
-- Appeals court backs Trump’s mass detention policy — Politico
+- Appeals court greenlights Trump admin policy of detaining undocumented immigrants without opportunity to seek release — cnn.com
+- DHS warned its independent watchdog that Noem can kill its investigations, senator says — NBC News
+- Hegseth Says Defense Department Will Cut Ties With Harvard — The New York Times
 - UNITED STATES-INDIA JOINT STATEMENT — The White House (.gov)
-- Canada plants a flag in Greenland — Politico
 - Contentious Herbicide Is Greenlit in a Blow to the MAHA Agenda — The New York Times
-- New York officer who hit suspect with cooler found guilty of manslaughter — The Guardian
-- The left smells blood after shocking Democratic primary result — Axios
-- TrumpRx: See the 43 drugs available on the Trump administration's new discounted drug site — cbsnews.com
-- Oregon family released, on their way home from Texas detention center — OregonLive.com
-- Virginia Democrats unveil a redistricting map that would aim to give them 4 more US House seats — cnn.com
+- Canada plants a flag in Greenland — Politico
+- How TrumpRx drug prices compare to generic alternatives — Axios
+- Bard College President Leon Botstein Was Close With Jeffrey Epstein — The New York Times
+- Trump envoys met directly with Iran foreign minister in Oman — Axios
+- The Real Reason Trump Wants to Let Our Nuclear Weapons Treaty With Russia Die — Slate
